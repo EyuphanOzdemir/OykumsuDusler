@@ -468,15 +468,17 @@ Kulağa çılgınca geliyor. Bana da gelmişti. Ama Doğa bunu bir benzetme olar
 
 Gerçekten bir melodiye dönüşeceğine inanıyordu.
 
-Daha doğrusu, “inanmak” sözcüğünü kullandığımda itiraz etmişti.
+Zaten “inanmak” sözcüğünü kullandığımda itiraz etmişti.
 
-“İnanmıyorum,” dedi. “Mümkün olduğunu düşünüyorum.”
+“İnanmıyorum” dedi. “Mümkün olduğunu düşünüyorum.”
 
-“Bu ikisi arasında şu anda beni rahatlatacak kadar büyük bir fark göremiyorum.”
+Beni kaygılandıran sözcük seçimi değildi. Doğa’nın bunu bir benzetme değil, gerçek bir olasılık olarak görmesi, gerçekle bağının sandığımdan daha kırılgan olabileceğini düşündürüyordu. Ne kadar ciddi olduğunu anlayamıyordum.
 
-“Senin rahatlaman teorinin kriterlerinden biri değil.”
+“İnanmanla mümkün görmen arasında beni rahatlatacak bir fark yok,” dedim. “İkisinde de bunu gerçek bir ihtimal sayıyorsun. Ben bunun mümkün olup olmadığını değil, seni düşünüyorum. İyi olup olmadığını anlamaya çalışıyorum.”
 
-Bunu söylerken gülümsedi. Sonra önümde duran kâğıdı çekip arkasına birkaç çizgi çizdi.
+“Senin rahatlaman, bir şeyin mümkün olup olmadığının ölçütü değil.”
+
+Bunu söylerken gülümsedi. Barber’ın Adagio’sunu dinlerken yüzüne çöken o ağır ifade dağılmıştı. Yüzünde şimdi, sevdiği bir şeyi anlatmaya heveslenen insanların o tanıdık canlılığı vardı. Kaygım geçmemişti ama onu böyle görmek hoşuma gitti. Sonra önümde duran kâğıdı çekip arkasına birkaç çizgi çizdi.
 
 Sicim Kuramı’ndan söz etmeye böyle başladı. Anlattığının fiziğin kendisi değil, fizikten çıkardığı sonuç olduğunu özellikle sonradan ayırt edebildim. Kurama göre maddenin en temel düzeyinde bildiğimiz parçacıklar yerine farklı biçimlerde titreşen sicimler düşünülebilirdi. Doğa’nın aklını ele geçiren şey de bu titreşim fikriydi.
 
@@ -494,7 +496,11 @@ Doğa’ya göre fizikçilerin bazen yalnızca anlatmayı kolaylaştırmak için
 
 Buradan sonra fizik bitiyor, Doğa başlıyordu.
 
-Müzik dinlerken insanın kendisini bir süreliğine daha temel bir varoluş biçimine yaklaştırdığını düşünüyordu. Buna “sicimleşmek” diyordu. Çoğumuz bir parçanın sonunda yeniden sandalyemize, ismimize, bedenimize dönüyorduk. Ama ona göre bazı insanlar yeterince ileri gidebilirdi. Benliği meydana getiren o karmaşık örgü çözülür, başka bir düzende yeniden kurulursa geriye et, kemik ve bir insan adı değil, yalnızca titreşim kalabilirdi.
+Doğa’ya göre müzik yalnızca insanın dinlediği bir şey değildi; bedenine ve bilincine aynı anda ulaşarak onu kendi düzenine çekebilen bir güçtü. İnsana dışarıdan yeni bir şey eklemiyor, onu oluşturan bütün parçaları kendi ritmi içinde yeniden düzenliyordu. Müzik dinlerken insanın kendisini bir süreliğine daha yalın bir varoluş biçimine yaklaştırdığını düşünüyordu. Buna “sicimleşmek” diyordu.
+
+Bu herkeste aynı derinlikte gerçekleşmiyordu. Doğa bazı insanların müzik karşısında daha geçirgen olduğunu düşünüyordu. Bunun eğitimle, nota bilmekle ya da iyi bir icracı olmakla ilgisi yoktu. Müziğin dilini bilmek, Doğa için onu açıklayabilmekten çok, bedende ve zihinde yarattığı en küçük değişimi bile duyabilmekti. Kendisini de böyle insanlardan biri sayıyordu.
+
+Çoğumuz bir parçanın sonunda yeniden sandalyemize, ismimize, bedenimize dönüyorduk. Ona göre bu insanlar ise müziğin düzenine daha derinden uyum sağlayabilir, bu uyumu daha uzun süre koruyabilirdi. Uyum yeterince derinleşirse benliği meydana getiren o karmaşık örgü çözülüp başka bir düzende yeniden kurulabilir; geriye et, kemik ve bir insan adı değil, yalnızca titreşim kalabilirdi.
 
 Bir melodi.
 
@@ -506,17 +512,41 @@ Bir melodi.
 
 “Dışarıdan bakmak zaten problemin bir parçası.”
 
-Bazı Gnostik düşüncelerde insanın asıl yurdundan kopmuş olduğu fikrini sevdiğini söyledi. Yalnız onun hikâyesinde geri dönülecek bir Tanrı yoktu. Geri dönüş, maddenin altında olduğunu düşündüğü o yalın titreşimeydi.
+“Peki neden bazı insanlar?”
 
-Bu kısmı anlatırken heyecanlanıyordu. Ben ise arada bir onu durdurup gerçekten neyi fizik makalelerinde okuduğunu, neyi kendisinin eklediğini soruyordum. Çoğu kez sabırsızlanarak:
+“Bilmiyorum. Bazılarının ışığa diğerlerinden daha hassas olması gibi. Eşiklerimiz aynı değil.”
 
-“Onu ben ekliyorum tabii,” diyordu.
+“Bu bir açıklama değil.”
 
-Bu cevap, garip biçimde, ona güvenimi artırıyordu. En azından kendi deliliğini bilimin üzerine gizlice yapıştırıp bana paket halinde satmaya çalışmıyordu.
+“Her şeyi açıklayabildiğimi söylemedim.”
+
+Sonra bazı Gnostik düşüncelerde insanın asıl yurdundan kopmuş olduğu fikrini sevdiğini söyledi. Yalnız onun hikâyesinde geri dönülecek bir Tanrı yoktu. Geri dönüş, maddenin altında olduğunu düşündüğü o yalın titreşimeydi.
+
+Bu kısmı anlatırken heyecanlanıyordu. Ben ise arada bir onu durdurup anlattıklarının ne kadarını okuduğu bilim yazılarından aldığını, ne kadarını kendisinin eklediğini soruyordum. Çoğu kez sabırsızlanarak:
+
+“Onu ben ekliyorum tabii” diyordu.
+
+Bu cevap, garip biçimde, ona güvenimi artırıyordu. En azından temelsiz çılgın fikirlerini bilimin üzerine gizlice yapıştırıp bana paket halinde satmaya çalışmıyordu.
+
+“Peki bütün bunların mümkün olduğundan hiç mi şüphe etmiyorsun?” dedim.
+
+“Nasıl gerçekleştiğini, neyin eksik olduğunu, bazı bağlantıları yanlış kurup kurmadığımı sürekli sorguluyorum.”
+
+“Ama melodileşmenin kendisinden etmiyorsun.”
+
+“Hayır.”
+
+“Nasıl?”
+
+“Bazen bir şeyden öyle eminsindir ki ondan şüphe etmek apaçık saçma görünür. Benim için bu da öyle.”
+
+Şüphe etmek aklına gelmemiş değildi. Belli ki yıllardır düşüncesinin her yanını yokluyor, yalnız merkezindeki o tek ihtimali yerinden oynatmıyordu.
+
+Bir süre sonra onu sorgulamayı bıraktım. Zaten bir makale yazmaya niyeti yoktu; kurduğu şeyi bana onaylatmaya da ihtiyacı yoktu. Ben de dinlemeyi seçtim.
 
 Yine de bütün bunları neden ciddiye aldığımı merak edebilirsin.
 
-Ciddiye almakla inanmak aynı şey değil. Doğa’nın kuramına inanmış değildim. Ama ona gülemiyordum da. Müzik bana da hayatım boyunca başka hiçbir şeyin veremediği bir his vermişti. Bazı parçaların içinde birkaç dakika boyunca kendim olmaktan çıktığımı, bedenimin sınırlarının gevşediğini, dünyanın geri kalanının uzakta kaldığını hissettiğim olmuştu. Bunu hiçbir zaman fiziksel bir dönüşüm saymamıştım elbette. Yine de Doğa’nın anlattığı deliliğin içimde yabancı olmadığı bir yer vardı.
+Ciddiye almakla inanmak aynı şey değildi. Doğa’nın kuramına inanmıyordum; yine de anlattıklarını saçma deyip bir kenara atamıyordum. Müzik bana da hayatım boyunca başka hiçbir şeyin veremediği bir his vermişti. Bazı parçaların içinde birkaç dakika boyunca kendim olmaktan çıktığımı, bedenimin sınırlarının gevşediğini, dünyanın geri kalanının uzakta kaldığını hissettiğim olmuştu. Bunu hiçbir zaman fiziksel bir dönüşüm saymamıştım elbette. Ama Doğa’nın düşüncesi, benim de tanıdığım bu hissi akıl almaz bir sonuca kadar götürüyordu. O sonuca inanmıyordum; düşüncenin nereden doğduğunu anlayabiliyordum.
 
 Sonra bana kayıtları gösterdi.
 
