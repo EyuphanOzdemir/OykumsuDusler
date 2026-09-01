@@ -4,8 +4,8 @@
 
 Kitap üç öyküden oluşur ve sıra değişmemelidir:
 
-1. **HATIRA**
-2. **MÜZİĞİN KANATLARI**
+1. **MÜZİĞİN KANATLARI**
+2. **HATIRA**
 3. **KUSURSUZ**
 
 `HATIRA` ile `MÜZİĞİN KANATLARI` aynı kurmaca evrendedir ve Doğa üzerinden doğrudan bağlanır. `KUSURSUZ` aynı olay örgüsünün devamı değildir; kitap düzeyinde tematik ve metafizik akrabalık taşır.
@@ -30,8 +30,8 @@ Systemisler anlamsızlık sorununa pratik/eylemsel bir yanıt verirler:
 2. Ölüm ve biyolojik sınırlılığı yenmeye çalışmak.
 
 Bu nedenle üçlü yapı kabaca:
-- **hatırlamak / anlam üretmek**
 - **dönüşmek / kaçmak**
+- **hatırlamak / anlam üretmek**
 - **sistem kurmak / ölümü yenmek**
 eksenlerinde okunabilir.
 

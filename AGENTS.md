@@ -8,9 +8,14 @@ Kitabın adı: **Öykümsü Düşler**
 
 Öykü sırası ve kanonik kaynak dosyaları:
 
-1. `hatira.md` — **HATIRA**
-2. `muzigin_kanatlari.md` — **MÜZİĞİN KANATLARI**
+1. `muzigin_kanatlari.md` — **MÜZİĞİN KANATLARI**
+2. `hatira.md` — **HATIRA**
 3. `kusursuz.md` — **KUSURSUZ**
+
+Kullanıcı kısaltmaları:
+- `MK` = `muzigin_kanatlari.md` / **MÜZİĞİN KANATLARI**
+- `H` = `hatira.md` / **HATIRA**
+- `K` = `kusursuz.md` / **KUSURSUZ**
 
 Öykü dosyalarının mevcut metni her zaman birincil kaynaktır. Bu bağlam dosyaları metni anlamaya yardım eder; öykü dosyasıyla açık bir çelişki varsa sessizce metni bağlam dosyasına uydurma. Çelişkiyi fark et ve görevle ilgiliyse kullanıcıya belirt.
 

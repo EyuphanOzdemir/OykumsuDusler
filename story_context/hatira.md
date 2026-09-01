@@ -1,7 +1,7 @@
 # HATIRA — Codex bağlam dosyası
 
 ## Rolü
-`hatira.md`, **Öykümsü Düşler** kitabının birinci öyküsüdür.
+`hatira.md`, **Öykümsü Düşler** kitabının ikinci öyküsüdür.
 
 Bu dosya öykünün yerine geçmez. Her görevde önce `hatira.md` metnini oku.
 
@@ -36,6 +36,8 @@ Melih'in kız kardeşi. Çocukluk travmalarını ve Melih'i kendi hatırlama bi�
 ### Doğa
 Müge'nin kızı, Melih'in yeğeni. `MÜZİĞİN KANATLARI`nın merkez karakteridir. HATIRA'daki Doğa sahneleri iki öykünün sürekliliği açısından kritik önemdedir.
 
+Yetişkin Doğa ilk bakışta çarpıcı/seksi değildir; koyu saçlı, esmer tenli, belirgin elmacık kemikli ve sert yüz çizgilidir. Giyimine pek özen göstermez; koyu, sade, özellikle yakışsın diye seçilmemiş giysiler giyer. Güzelliği dikkatli bakınca seçilir.
+
 ### Nuriye
 Melih ve Müge'nin annesi. Şiddet gören ama başkalarını koruma/yardım etme üzerinden ayakta kalan karakter.
 
@@ -56,7 +58,7 @@ Melih ve Müge'nin babası. İçki, şiddet, yazma, başarısızlık ve anlam ar
 7. Melih'in babası, roman/yazı, nihilizm, şefkat ve insan-yapımı mana üzerine düşünceleri.
 8. Müge yaşlandıkça Melih'i gittikçe daha genç anılarda hatırlar; sonunda Müge de ölür.
 9. Doğa'nın hatıraları: çocuklukta müzikle sıra dışı ilişkisi, Melih'le bağı, ilk konseri vb.
-10. Doğa'nın Fuat'la otel balkonundaki son gece sahnesi görülür. Melih fotoğraf ve “atladığımızda” sözünden Doğa'nın kendini bir yerden bırakmayı planladığını anlar fakat müdahale edemez.
+10. Doğa'nın Fuat'la otel balkonundaki son gece sahnesi görülür. MK artık önce okunacağı için bu bölüm spoiler değil, aynı olayın Melih'in hatıra-metafiziği içinden yankısı olarak çalışır.
 11. Melih gerçek unutuluşa yaklaştığını hisseder ve son kez Waiheke bankına dönmek ister.
 12. Finalde Mary ve Liam aynı bankta oturur; “F ve T buradaydı” yazısını görürler. Onlar Melih ve Diren'i tanımaz. Tekne kaybolur, okyanus kalır.
 
@@ -90,6 +92,8 @@ Doğa:
 - Fuat saate bakar; Doğa “Daha var” der.
 - Doğa fotoğrafı çıkarır ve aile geçmişinden söz eder.
 - “Atladığımızda” ifadesi Melih'in onların planını anlamasını sağlar.
+
+`HATIRA`, `MÜZİĞİN KANATLARI`ndan sonra okunacağı için Doğa-Fuat final ayrıntıları artık okurun bildiği olayların Melih açısından yeniden kurulmasıdır. Bu bölümü genişletirken MK'yi özetleme; sahne Melih'in müdahale edemeyişi, unutuluşa yaklaşması ve hatıra mantığı için çalışmalıdır.
 
 Bu maddelerden biri `MÜZİĞİN KANATLARI`nda değiştirilirse iki öyküyü birlikte kontrol et.
 

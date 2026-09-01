@@ -1,7 +1,7 @@
 # MÜZİĞİN KANATLARI — Codex bağlam dosyası
 
 ## Rolü
-`muzigin_kanatlari.md`, **Öykümsü Düşler** kitabının ikinci öyküsüdür.
+`muzigin_kanatlari.md`, **Öykümsü Düşler** kitabının birinci öyküsüdür.
 
 `HATIRA` ile aynı evrendedir. Doğa iki öyküyü doğrudan birbirine bağlar.
 
@@ -9,7 +9,7 @@ Bu dosya mevcut öykü metninin yerine geçmez. Her görevde önce `muzigin_kana
 
 ## Temel anlatı
 
-Anlatıcı **Fuat**'tır. Öykü, Fuat'ın Ganita'ya gitmeden hemen önce **Irmak'a yazdığı bir veda mektubu** biçimindedir.
+Anlatıcı **Fuat**'tır. Öykü, Fuat'ın Ganita'ya gitmeden hemen önce **Irmak'a yazdığı bir veda mektubu** biçimindedir; fakat başlangıçta bunun veda/son yolculuk olduğu açıkça ilan edilmemelidir.
 
 Fuat yıllardır dünyadan bunalmış, kendine küçük “adalar” kurmuş biridir:
 - müzik
@@ -18,7 +18,7 @@ Fuat yıllardır dünyadan bunalmış, kendine küçük “adalar” kurmuş bir
 - içki
 - çok az insan
 
-Irmak'ı uzun yıllardır sever; öykünün sonunda bunu açıkça söyler. Fakat anlatının merkezindeki ilişki Fuat–Doğa ilişkisidir.
+Irmak'ı uzun yıllardır sever; öykünün sonunda bunu açıkça söyler. Başlangıçta Irmak'a duyduğu aşkı doğrudan söyleyerek final itirafını zayıflatma. Anlatının merkezindeki ilişki Fuat–Doğa ilişkisidir.
 
 ## Fuat'ın sesi ve psikolojisi
 
@@ -47,6 +47,7 @@ Temel özellikleri:
 - Kişisel geçmişi hakkında konuşmaktan kaçınır.
 - Fuat kişisel alana girdiğinde birden fazla kez kullandığı sınır cümlesi: **“Sadece müzik lütfen.”**
 - Fuat hakkında da başlangıçta çok az kişisel soru sorar.
+- Yetişkin Doğa ilk bakışta çarpıcı/seksi değildir; koyu saçlı, esmer tenli, belirgin elmacık kemikli ve sert yüz çizgilidir. Giyimine pek özen göstermez; koyu, sade, özellikle yakışsın diye seçilmemiş giysiler giyer. Güzelliği dikkatli bakınca seçilir.
 - Çok iyi piyano ve keman çalar.
 - Müziği yalnızca seven biri değil; müziği ontolojik bir çıkış olarak gören biridir.
 - “Melodileşme” düşüncesi onun hayatının merkezidir.
@@ -352,7 +353,7 @@ Kronoloji:
 Doğa'nın korkusu fotoğrafın atılması kadar, hatta daha çok, **içindeki anlamı taşıyan herkes öldükten sonra nesnenin kalmasıdır.**
 
 Doğa fotoğrafı atlarken yanında tutmayı planlar.
-**“Atladığımızda”** çoğul eki önemlidir ve HATIRA'da Melih'in planlarını anlamasını sağlayan ipucudur.
+**“Atladığımızda”** çoğul eki önemlidir ve HATIRA'da Melih'in sahneyi anlamasını sağlayan ayrıntıdır.
 
 ## Son çatışma
 
