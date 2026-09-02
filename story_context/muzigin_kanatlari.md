@@ -277,14 +277,16 @@ Müzik arayışı ilişkiyi ilerleten bir **eylem/plot** olmalıdır; teori anla
 
 ## Ganita rüyası ve dönüşüm
 
-Fuat, Doğa'nın birkaç günlük uzaklaşması sırasında Trabzon'daki Ganita'yı rüyasında görür.
+Ganita, Fuat'ın çocukluğundan gelen bir yer değildir. Fuat Ganita'yı birkaç yıl önce, depresyonunun ağırlaştığı bir sonbaharda, daha önce hiç görmediği bir yere gitme isteğiyle Trabzon'a yaptığı kısa bir yolculuktan bilir. Rüzgârlı, tenha bir gecede Ganita'da denizin ve dalgaların etkisiyle Irmak'ı arayıp içinden geçenleri söylemek istemiş, ama arayamamıştır. Bu hatıra Ganita'nın rüyada belirmesini hazırlar.
+
+Fuat, Doğa'nın birkaç günlük uzaklaşması sırasında Trabzon'daki Ganita'yı rüyasında yeniden görür.
 
 Rüyada:
-- kendini yüksekten bırakır,
+- kendini denize bakan kayalık/falezli kıyıdan bırakır,
 - müzik düşüşünü durdurur,
 - yükselir/uçar,
 - beden sınırları çözülür,
-- deniz, rüzgâr, ağaç, tepe ile ayrım kaybolur,
+- deniz, rüzgâr, ağaç ve kayalık kıyı ile ayrım kaybolur,
 - sonunda manzaraya bakan ayrı bir “Fuat” kalmaz.
 
 Bu rüya melodileşmenin fenomenolojik bir provası gibidir.
