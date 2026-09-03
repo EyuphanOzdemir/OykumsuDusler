@@ -88,6 +88,7 @@ Doğa:
 - Müge fotoğrafı ölmeden birkaç gün önce Doğa'ya verir.
 - Kronoloji: önce Melih, sonra Diren, sonra Müge ölür.
 - Otel balkonu sahnesinde Doğa'nın yanında genç bir adam vardır: Fuat.
+- Fuat bu sahnede solgun, uykusuz ve psikolojik olarak dağılmış görünür; Doğa'nın anlattıklarını aceleci ve kesik bir yorumla kendi anlamına çekmeye çalışır, Doğa onu hemen durdurur.
 - Şiddetli yağmur vardır.
 - Fuat saate bakar; Doğa “Daha var” der.
 - Doğa fotoğrafı çıkarır ve aile geçmişinden söz eder.

@@ -272,6 +272,7 @@ Doğa yıllardır kendisini dönüşüm eşiğine götürecek müziği arar.
 üzerinden arar.
 
 Fuat sonradan bu arayışa katılır.
+Fuat'ın katıldığı dönem yurt içiyle sınırlı kalır. Doğa uluslararası arayışı Fuat'tan önce zaten yapmış ve buna çok para harcamıştır; aynı ölçekte bir yolculuğu yeniden sürdürmezler.
 
 Müzik arayışı ilişkiyi ilerleten bir **eylem/plot** olmalıdır; teori anlatmak için bahane olmamalıdır.
 
@@ -291,21 +292,20 @@ Rüyada:
 
 Bu rüya melodileşmenin fenomenolojik bir provası gibidir.
 
-Fuat daha sonra rüyada çalan/ona bu hissi veren Norveçli senfonik metal parçasını bulur ve Doğa'ya gönderir.
+Fuat daha sonra rüyada çalan/ona bu hissi veren, gotik metale yakın ama daha yavaş ve yaylı/koro ağırlıklı Norveçli bir grubun parçasını bulur ve Doğa'ya gönderir.
 
 Doğa parçayı 23.59'da karanlık/mumlu odada tek başına dener.
 Tam dönüşemez fakat daha önce hiç olmadığı kadar yaklaşır.
 
-## Fiziksel “mucize”
+## Kanıtsız eşik
 
-Doğa eski bir denemesinin videosunu Fuat'a gösterir.
-Videoda bedeni kısmen saydamlaşır/ışıklı noktalara çözülür; arkasındaki halı seçilebilir hale gelir.
+Doğa bu denemeden sonra çok umutlu ama aynı zamanda mutsuzdur: eşiğe ilk kez bu kadar yaklaşmış, fakat tam geçememiştir.
 
-Bu olay Fuat'ın pozisyonunu değiştirir:
-- artık “hiçbir şey olmuyor” diyemez,
-- fakat “bir şey oluyor” ile “Doğa gerçekten melodiye dönüşecek” arasında hâlâ büyük fark olduğunu vurgular.
+Fuat fiziksel bir kanıt görmez. Eski deneme videosu yoktur. Doğa'nın yaşadığı şey Fuat için hâlâ dışarıdan doğrulanamaz bir deneyimdir.
 
-Fuat hiçbir noktada Doğa'nın bütün teorisine kolayca inanmış bir müride dönüşmemelidir.
+Fuat hiçbir noktada Doğa'nın bütün teorisine kolayca inanmış bir müride dönüşmemelidir. Fakat Doğa'nın yüzündeki umut ve kesinlik onu sarsar.
+
+Fuat parçayı kendi üzerinde denemez. Çünkü dener ve hiçbir şey olmazsa, Doğa ona Ganita'ya birlikte gitmek için asla izin vermez. O zaman Fuat İstanbul'da kalacak, Doğa'sızlığıyla baş başa kalacaktır; geriye yalnızca Doğa'nın peşinden ölüme gitme gerçeği kalır.
 
 ## Yükseklik ve Ganita kararı
 
@@ -318,14 +318,20 @@ Doğa Ganita'ya gidip kendini bırakmaya karar verir.
 Fuat:
 - melodileşmek istemez,
 - Doğa kadar teoriye inanmaz,
-- ölmek istediğinden de kesin biçimde emin değildir.
+- kendisi için bunun büyük ihtimalle ölüm/intihar olacağını bilir.
 
-Yine de:
-**“Sen atlayacaksan ben de atlayacağım.”**
+Fuat'ın karar çizgisi kademeli ilerler:
+- İstanbul'da yalnızca Trabzon'a onunla gelmekte ısrar eder.
+- Doğa Ganita'ya onunla gelmesini reddeder; Fuat'ın dünyayla bağı olduğunu ve bu yüzden öleceğini düşünür.
+- Trabzon'da Irmak/Cem/çocuk konuşması ve Fuat'ın yalnız iç hesaplaşması bu bağı görünür kılar. Bu hesaplaşmada üç an belirleyicidir: Irmak'ın Cem'e bakarken Fuat'ın kesilen cümlesini fark etmemesi; Fuat'ın Irmak ve Cem'i yanlarındaki çocukla birlikte görmesi; Fuat'ın eski Ganita gecesinden sonra Irmak'a karşılıksız kalan umutlu bir mesaj göndermesi.
+- Fuat'ın eski Ganita depresyonunda Irmak'a gönderdiği parça Julee Cruise'un **Nightingale** parçasıdır. Fuat yıllar sonra bu parçadaki kadın sesini Doğa'nın sesiyle karıştırır; bu karışma psikoz gibi değil, Doğa'nın Fuat'ın zihninde müziğin içine yerleşmesi gibi çalışmalıdır.
+- Son gün Fuat psikolojik ve fizyolojik olarak çöker; Doğa izin vermezse arkasından atlayacağını bilir.
+- Akşam yemeğinde Doğa'yı ikna eder. Doğa romantik bir kabul değil, açık bir şefkatle elini tutacağını ve bırakmayacağını söyler.
 
 Bunun psikolojik gerekçesi:
 - Doğa gittikten sonra dünyada kalmayı tahayyül edemez.
-- Eğer Doğa'nın teorisinde küçücük de olsa gerçek payı varsa, belki böylece ayrılmayacaklardır.
+- Doğa'nın teorisinde küçücük de olsa gerçek payı varsa, belki böylece ayrılmayacaklardır.
+- Ama Fuat kendisi için bunun çok büyük ihtimalle intihar olduğunu bilir.
 
 Fuat'ın kararını “o da melodileşmek istedi” diye sadeleştirme.
 

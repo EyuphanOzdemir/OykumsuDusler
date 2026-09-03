@@ -608,9 +608,9 @@ Adam başını hafifçe eğdi ama araya girmedi.
 
 “Dayıma sarıldım. O anda kendi dertlerim küçücük görünmüştü gözüme. Annemle babamla kavga etmişim, psikoloğa gitmek istemiyormuşum... Düşünsene, gece yarısını çoktan geçmiş. Şehir uyurken bir adam mutfakta tek başına oturmuş, yıllardır bitiremediği romanının parçalarını yine bir araya getirmeye çalışıyor.”
 
-Doğa daha devam edecek gibiydi ama adam heyecanla sözünü kesti.
+Doğa daha devam edecek gibiydi ama adam birden başını kaldırdı. O ana kadar ne kadar kötü göründüğünü fark etmemiştim. Yüzü solgundu; gözlerinin altında uykusuzluktan mor gölgeler vardı. Bir eli dizinin üzerinde duruyor, parmakları pantolonunu gereksiz bir güçle sıkıp bırakıyordu. Sanki bütün gün kendini bir arada tutmuş da şimdi birkaç cümleyle dağılmamak için uğraşıyordu.
 
-“Peki ya sen, Doğa? Belki müzikten olma hissin, onunla tamamen birleşme arzun...”
+“Peki ya sen, Doğa?” dedi. Sesi beklediğimden daha aceleci çıktı. “Belki bu... müzikten olma hissin, onunla tamamen...”
 
 “Lütfen bunu yapma.”
 
