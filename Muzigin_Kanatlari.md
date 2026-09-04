@@ -2168,45 +2168,9 @@ Zaten herkes ölmüyor muydu?
 
 Bu gece olmazsa yirmi yıl sonra. Otuz yıl sonra. Bir hastane yatağında, yalnız bir evde, bir sabah banyoda, kim bilir nerede. Belki yirmi yıl daha aynı karanlığın içinde sürünüp sonunda yine ölecektim. Ölümün kaçınılmaz olması onu daha az korkunç yapmıyordu elbette. Ama sanki önümde duran şeyi biraz küçültüyor, “Şimdi değil” ile “hiçbir zaman” arasındaki farkı hatırlatıyordu.
 
-Doğa kadehini korkuluğun üzerine koydu.
+Doğa kadehini korkuluğun üzerine koydu.- Yağmur biraz hafiflemişti. Rüzgâr hâlâ sertti.
 
-“Çok sessizsin.”
-
-“Düşünüyorum.”
-
-“Tehlikeli.”
-
-“Geç kaldın.”
-
-Gülümsedi.
-
-Yağmur biraz hafiflemişti. Rüzgâr hâlâ sertti.
-
-“Pişman mısın?” diye sordu.
-
-Doğrudan cevap veremedim.
-
-“Hayır,” dedim sonunda.
-
-Bu bütünüyle doğru değildi.
-
-Ama bütünüyle yalan da değildi.
-
-Doğa yüzüme birkaç saniye baktı. Sonra şişeyi aldı.
-
-“Bir tane daha.”
-
-“Ganita’da dengemizi şarapla mı sınayacağız?”
-
-“Sen zaten dengeli biri değilsin.”
-
-İkinci kadehleri doldurdu.
-
-Onunkini de.
-
-Bunu özellikle hatırlıyorum. Çünkü ertesi sabah, geceyi parça parça toplamaya çalışırken uzun süre aynı görüntüye döndüm: Doğa’nın kendi kadehine de şarap doldurmasına. Demek ki sarhoştu, diye düşündüm önce. Demek ki benim gibi o da biraz gevşemek istemişti.
-
-O anda hiçbir şeyden şüphelenmedim.
+Doğa yüzüme birkaç saniye baktı. Sonra şişeyi aldı. İkinci kadehleri doldurdu.
 
 İkinci kadehin yarısına geldiğimde başımın içindeki düşünceler garip biçimde yavaşlamaya başladı.
 
@@ -2256,6 +2220,10 @@ Doğa’nın bana bir şey söylemesi.
 
 Belki de eğilip yüzüme çok yakından bakması.
 
+Kollarının bir an boynuma sıkıca dolanması.
+
+Alnıma değen belli belirsiz bir öpücük.
+
 Sonra hiçbir şey.
 
 ∞
@@ -2292,11 +2260,11 @@ Koridor cevap vermedi.
 
 Odaya geri girdim.
 
-Ellerimi saçlarımın arasından geçirdim. Geceyi hatırlamaya çalıştım. Balkon. Şarap. İkinci kadeh. Doğa’nın sesi. Sonra kesilmiş bir film.
+Ellerimi saçlarımın arasından geçirdim. Geceyi hatırlamaya çalıştım. Balkon. Şarap. İkinci kadeh. Doğa’nın sesi. Sonra hiçbir şey yoktu.
 
-Telefonumu buldum. Saat sabahı çoktan geçmişti. 23.59 üzerinden saatler geçmişti.
+Telefonumu buldum. Saat sabahı çoktan geçmişti. Ogeleye geliyordu. 23.59 üzerinden saatler geçmişti.
 
-İçimde bir şey düştü.
+O anda anladım.
 
 Ganita.
 
@@ -2314,13 +2282,13 @@ Ellerim o kadar titriyordu ki kâğıdı iki elimle tutmak zorunda kaldım.
 
 Doğa şöyle yazmıştı:
 
-Fuat,
+"Fuat,
 
 Bunu okuduğunda gitmiş olacağım.
 
 Önce kızacağın şeyi söyleyeyim. Şarabına güçlü bir uyku ilacı koydum. Ne kadar kızarsan kız, bunu değiştirmeyeceğim için şimdiden rahatım.
 
-İstanbul’dan çıkarken bunun böyle biteceğini biliyordum. Ganita’ya benimle gelmek isteyeceğini de biliyordum. Belki ilk anda değil, belki burada, belki son saatte; ama sonunda bana “Ben de geliyorum” diyeceğini biliyordum. Seni tanıyorum artık.
+İstanbul’dan çıkarken bunun böyle biteceğini tahmin ediyordum. Ganita’ya benimle gelmek isteyeceğini de biliyordum. Belki ilk anda değil, belki burada, belki son saatte; ama sonunda bana “Ben de geliyorum” diyeceğini biliyordum. Seni tanıyorum artık.
 
 Sana izin vermiş gibi yaptım çünkü başka türlü benimle Trabzon’a gelmene engel olamazdım. Buraya gelmeni istedim de. Son günümde yanımda olmanı istedim. Bunda bencildim.
 
@@ -2330,43 +2298,37 @@ Hayatımda herhangi bir şeyle övünmek bana hep saçma geldi. İnsan kendi yap
 
 Yine de ille de tek bir şey söylemem gerekirse, hiç kimseye bilerek zarar vermedim. Bunu erdemim olduğu için söylemiyorum. İyi bir insan olmaya karar verdiğim için de değil. Başka türlüsü benden çıkmadı. Yapım buna izin vermedi. Elimden geldiğinde yardım ettim; zarar vermek gerektiğinde geri çekildim. Belki benim tek ahlakım buydu.
 
-Sana hep müzik olduğumu söyledim. Sen bazen bunu şiir gibi dinledin. Ben öyle söylemiyordum. Bir parçayı çalmadan önce kafamda duymak, bir melodinin nereye gideceğini daha gitmeden bilmek, notaların birbirine nasıl değeceğini düşünmeden hissetmek... Bunlar bana hiçbir zaman yetenek gibi gelmedi. Sanki sonradan öğrendiğim şeyler değil de yanlış bir bedene önceden yüklenmiş şeylerdi.
-
-Müzik nasıl kötülük yapabilir, Fuat?
+Sana hep müzik olduğumu söyledim. Sen bazen bunu şiir gibi dinledin. Ben ise mecaz yapmadim hic bunu soylerken. Müzik nasıl kötülük yapabilir, Fuat?
 
 Ben de sana yapamam.
 
-Benim yüzümden ölmen, hayatım boyunca olduğum şeye ters düşerdi. O yüzden seni Ganita’ya götürmeyeceğim.
+Benim yüzümden ölmen, benim gibi bir melodiye ters düşerdi. O yüzden seni Ganita’ya götürmeyeceğim.
 
 Dün sana “Elini tutacağım. Bırakmayacağım” dedim.
 
 Sana yalan söylemedim.
 
-Sadece sen başka anladın.
+Sadece baska bir sey kastettim.
 
 Eğer haklıysam bundan sonra müzik dinlediğin her an elini tutacağım. Bazen beni duyacaksın, bazen duymayacaksın. Belki çok uzun süre hiçbir şey olmayacak. Ama ben orada olacağım.
 
-Bir ricam daha var.
-
-Irmak’a yazdığın mektubu gördüm. Okumadım. Yalnızca kime yazdığını biliyorum ve dün bana yeterince şey anlattın.
-
-Bitir o mektubu.
+Ve senden bir dilegim var: Irmak’a yazdığın mektubu bitir.
 
 Bu kez bir şeyin sonucuna sen karar verme. Ona söylemeden onun ne hissedeceğini yazma. İlk defa yalnızca kendi payına düşen gerçeği söyle.
 
 Sonuna da aşağıya yazdığım cümleleri aynen ekle. Bunu benim son isteğim say.
 
-Ve yaşamaya çalış.
+Ve yaşamaya çalış. Diren!
 
-D.
+D."
 
-Notun altında birkaç satır daha vardı. Doğa’nın Irmak’a aynen aktarmamı istediği cümleler.
+Notun altında birkaç satır daha vardı. Doğa’nın sana aynen aktarmamı istediği cümleler.
 
 Onlara daha bakamadım.
 
 Kâğıdı masaya bıraktım.
 
-Bir süre ne yapacağımı bilmeden oturdum. Ganita’ya koşmak geçti aklımdan. Taksiye atlamak, kayalıklara kadar gitmek, aşağı bakmak. Belki bir iz bulmak. Belki hiçbir şey bulamamak.
+Bir süre ne yapacağımı bilmeden oturdum. Ganita’ya koşmak geçti aklımdan. Taksiye atlamak, kayalıklara kadar gitmek, aşağı bakmak. Belki bir iz bulmak. Belki hiçbir şey bulamamak. Polise gitmek.
 
 Sonra nottaki bir cümle geri geldi:
 
@@ -2384,11 +2346,9 @@ Bilgisayarı açtım.
 
 Aradığım parçayı düşünmem gerekmedi.
 
-Julee Cruise — Nightingale.
+Nightingale.
 
-Yıllar önce Ganita’dan sonra sana gönderdiğim şarkı.
-
-O zaman onu hep aynı yerden dinlemiştim: kayıp, erişemediğim bir kadın, söylenmemiş şeyler, cevap gelmeyen bir mesaj. Benim için yıllarca neredeyse yalnızca hüzünlü bir aşk şarkısı olmuştu.
+Sarkiyi sana gonderdigimden beri hep ayni hislerle dinlemistim onu: terkedilis, erişemediğim bir kadın, söylenmemiş şeyler, cevap gelmeyen bir mesaj. Benim için yıllarca neredeyse yalnızca aci dolu şarkı olmuştu.
 
 Oynat düğmesine bastım.
 
@@ -2408,13 +2368,11 @@ Bir hareket vardı.
 
 Bir ileri atılma isteği.
 
-Sanki şarkı yıllardır beni aynı yerde tutan bir şeyi bu kez gevşetiyor, beni geçmişe doğru değil önümde henüz açılmamış bir yere doğru itiyordu. Aynı melankoli oradaydı; fakat altında daha önce hiç duymadığım bir coşku vardı. Mutluluk değildi tam. Daha çok yaşamanın insanı öne doğru çeken kör kuvveti gibi bir şey.
+Sanki şarkı yıllardır beni aynı yerde tutan bir şeyi bu kez gevşetiyor, beni geçmişe doğru değil önümde henüz açılmamış bir yere doğru itiyordu. Aynı melankoli oradaydı; fakat altında daha önce hiç duymadığım bir coşku vardı. Mutluluk değildi tam. Daha çok yaşamanın insanı öne doğru çeken kör kuvveti gibi bir şey. Conatus!
 
 Sonra sesleri duydum.
 
-Önce bir tane.
-
-Arka tarafta, daha önce yüzlerce kez dinlediğim halde hiç fark etmediğim ince bir titreşim. Bir enstrümanın kuyruk sesi olabilir, kaydın içindeki küçük bir uğultu olabilir, kulaklığın yaptığı bir şey olabilir. Birkaç saniye sonra başka bir yerde yine aynı tuhaflık belirdi. Sonra bir tane daha.
+İlki arka taraftaydı; daha önce yüzlerce kez dinlediğim halde hiç fark etmediğim ince bir titreşim. Bir enstrümanın kuyruk sesi olabilir, kaydın içindeki küçük bir uğultu olabilir, kulaklığın yaptığı bir şey olabilir. Birkaç saniye sonra başka bir yerde yine aynı tuhaflık belirdi. Sonra bir tane daha.
 
 Parçayı durdurdum.
 
@@ -2468,11 +2426,9 @@ Buna inandım.
 
 Müziğin içindeydi.
 
-Üstelik yalnızca içinde durmuyordu. Sanki ona dokunmuştu. Yıllardır bildiğim bir parçanın içinde bana daha önce göstermediği küçük kapılar açmıştı. Doğa’nın gerçekten müzik olduğunu söylemesinin anlamı belki buydu: artık müziğin yalnızca bir parçası değil, ona karışan, onu azıcık değiştirebilen bir şey olmak.
+Üstelik yalnızca içinde durmuyordu. Sanki ona dokunmuştu. Yıllardır bildiğim bir parçanın içinde bana daha önce göstermediği küçük kapılar açmıştı. Doğa’nın gerçekten müzik olduğunu söylemesinin anlamı belki buydu: artık müziğin yalnızca bir parçası değil, ona karışan, onu azıcık değiştirebilen bir şey olmak. Hep diyordu ya "etkimek"...
 
-Bunun doğru olduğunu kanıtlayamam.
-
-Belki hiçbir zaman istemeyeceğim de.
+Bunun doğru olduğunu kanıtlayamam. Ama bunu hic umursamiyorum. Sarap tanrisi yeni bir yol ciziyordu.
 
 Parça bittiğinde hâlâ ağlıyordum ama ilk kez Nightingale beni mutsuz bırakmadı.
 
