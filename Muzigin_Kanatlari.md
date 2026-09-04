@@ -1378,23 +1378,11 @@ Bir varış noktası vardı artık: Ganita.
 
 ## AŞAMA 7 — Son Gün
 
-Trabzon’a giden uçakta Doğa başını omzuma koydu.
-
-Bunu daha önce hiç yapmamıştı.
-
-Uyuyordu; en azından gözleri kapalıydı ve nefesi bir süre sonra düzenli hale gelmişti. Başının ağırlığını omzumda hissediyordum. Saçlarının birkaç teli boynuma değiyordu. Bir yıl boyunca saatlerce yan yana oturmuş, aynı kulaklıklardan müzik dinlemiş, aynı şehirlerin ucuz otellerinde kalmıştık. Yine de o küçücük temas bana şimdiye kadar yaşadığımız bütün yakınlıklardan daha gerçek geldi.
-
-Belki de son olduğunu düşündüğüm içindi.
-
-Kıpırdamadım.
-
-Kolum uyuştu.
-
-Yine de kıpırdamadım.
+Trabzon’a giden uçakta Doğa başını omzuma koydu. Uyuyordu; en azından gözleri kapalıydı ve nefesi bir süre sonra düzenli hale gelmişti. Başının ağırlığını omzumda hissediyordum. Saçlarının birkaç teli boynuma değiyordu. Bir yıl boyunca saatlerce yan yana oturmuş, aynı kulaklıklardan müzik dinlemiş, aynı şehirlerin ucuz otellerinde kalmıştık. Yine de o küçücük temas bana şimdiye kadar yaşadığımız bütün yakınlıklardan daha gerçek geldi. Belki de son olduğunu düşündüğüm içindi. Kolum uyuştu bir sure sonra, yine de kıpırdamadım.
 
 Trabzon’a indiğimizde yağmur yoktu. Hava kapalıydı; Karadeniz’in üzerinde ağır, renksiz bir gök uzanıyordu. Doğa bunu iyiye yordu.
 
-“Güzel,” dedi.
+“Güzel” dedi.
 
 “Yeterli mi?”
 
@@ -1406,11 +1394,13 @@ Bana baktı.
 
 Ganita’ya çok uzak olmayan bir otele gittik. Resepsiyondaki adam kimliklerimizi aldıktan sonra bir süre ekrana baktı, sonra son derece ciddi bir yüzle evli olup olmadığımızı sordu.
 
-“Değiliz,” dedim.
+“Değiliz” dedim.
 
 Adam yüzünü ekşitti.
 
-“Odanın fiyatı ne kadar?” diye sordu.
+"Himm, bu durumda ayri odalarda kalmaniz lazim" dedi, sesi resmi bir tonda olmasina karsin kisisel olarak da bizi onaylamadigini ele veriyordu.
+
+“Odanın fiyatı ne kadar?” diye sordu Doga.
 
 Adam söyledi.
 
@@ -1428,83 +1418,71 @@ Doğa omuz silkti.
 
 “Çoğu şeyin var.”
 
-Çok yorgunduk. Duş alıp ayrı yataklara uzandık. Doğa birkaç dakika içinde uyudu.
+Uzun zamandir nasil bu kadar parasi oldugunu merak ediyordum. Kisisel konular yasak oldugu icin soramamistim ama bunu muzikle iliskilendirirsem belki yasagi atlatirim diye dusunup
+
+"Muzikten bu kadar para kazanildigini bilmiyordum. Sahi tam ne is yapiyorsun" dedim.
+
+"Pek cok sey, ama her zaman degil zaman zaman calisiyorum"
+
+"Ne yapiyorsun en cok?"
+
+"7.sinif pop parcalari yapip buyuk meblaglara satiyorum"
+
+"Gercekten mi? Hangi sarkicilar satin aldi ornegin?
+
+"Bosver" dedi, sustu ama sonra sanirim dayanamayip "Ama unlu olanlarin cogu aldi" diye ekledi.
+
+Çok yorgunduk. Duş alıp odadaki ayrı yataklara uzandık. Doğa birkaç dakika içinde uyudu.
 
 Ben uyuyamadım.
 
-Karanlıkta tavana bakarken ertesi geceyi düşünmemeye çalıştım. Sonra ertesi geceyi düşünürken Doğa’yı, kendimi, Irmak seni, yaşamı, ölümü, rüyayı, müziği düşündüm. Hepsi sonunda aynı noktaya bağlandı:
-
-Yaklaşık bir gün sonra Doğa olmayacaktı.
-
-Belki bedeni olmayacaktı ama müziği olacaktı.
-
-Belki yalnızca bedeni olmayacaktı.
-
-Belki hiçbir şeyi olmayacaktı.
+Karanlıkta tavana bakarken ertesi geceyi düşünmemeye çalıştım ama mumkun degildi. Doğa’yı, kendimi, seni, yaşamı, ölümü, rüyayı, müziği düşündüm. Hepsi sonunda aynı noktaya bağlandı: Yaklaşık bir gün sonra Doğa olmayacaktı.
 
 İnsan, bilmediği bir felaketi düşünürken ihtimalleri çoğaltarak kendisini oyalıyor. Sonuç değişmiyor.
 
-Yan yatakta Doğa derin bir uyku içindeydi.
+Yan yatakta Doğa derin bir uyku içindeydi. Uyurken kucuk bir kiz cocugu gibiydi. Uyumazkenki o kati gorunumlu yuz hatlari sanki yumusamiti. Cenin pozisyonunda, neredeyse hic ses cikarmiyordu.
 
-Ben ise sabaha kadar birkaç kez kalkıp pencerenin önünde sigara içtim.
+Sabaha kadar birkaç kez kalkıp pencerenin önünde sigara içtim.
 
 Ertesi sabah erkenden Ganita’ya gittik.
 
-Ganita’ya yıllar sonra, bu kez gündüz ve Doğa’yla dönmek garipti. İnsan zihninde büyüttüğü şeylerle gerçekte karşılaşınca çoğu zaman hayal kırıklığına uğrar. Ganita beni hayal kırıklığına uğratmadı. Tam tersine, gündüz ışığında daha ürkütücüydü.
+Oraya yıllar sonra, bu kez gündüz ve Doğa’yla dönmek garipti. İnsan zihninde büyüttüğü şeylerle gerçekte karşılaşınca çoğu zaman hayal kırıklığına uğrar. Ganita beni hayal kırıklığına uğratmadı. Tam tersine, gündüz ışığında daha ürkütücüydü.
 
 Sahil yolundan yukarıdaki teraslara çıktıkça deniz geride değil, aşağıda kalıyordu. Karadeniz koyu, ağır bir yüzey halinde uzanıyordu. Rüzgâr kıyıdan yukarı doğru vuruyor, çalıları ve ağaçların ince dallarını durmadan hareket ettiriyordu.
 
-Doğa kayalık kenara yaklaşınca kolundan tuttum.
+Doğa kayalık kenara yaklaşınca refleksif olarak kolundan tuttum.
 
-Bana baktı.
+Bana baktı. Sasirmisti. Kizacak diye korktum ama bir sey demedi.
 
-“Ne?”
+Kolunu bırakmadım. Bir süre aşağıya baktı.
 
-“Hiç.”
+Sonra “İdeal” dedi. Tek kelime. Rüyamda beni kanatlandıran yer, Doğa için yalnızca idealdi. Atlamak, dusmek, olmek,... sanki bunlar sozkonusu degildi. Ona bir kez daha "deli" dedim icimden. "Bu kiz gercekten deli!".
 
-Kolunu bırakmadım.
+Kayaların denize en sert indiği noktayı seçti. Çevreyi dikkatle inceledi; gece geldiğinde nereden yürüyeceğini, eşyaları nereye bırakacağını, müziği ne zaman başlatacağını söyledi. Beni planın dışında tutarak konuşuyordu. Bunu bilerek yaptigini. Benim onunla atlamami ihtimal dahi bile kabul etmiyordu.
 
-Bir süre aşağıya baktı.
-
-Sonra:
-
-“İdeal,” dedi.
-
-Tek kelime.
-
-Rüyamda beni kanatlandıran yer, Doğa için yalnızca idealdi.
-
-Kayaların denize en sert indiği noktayı seçti. Çevreyi dikkatle inceledi; gece geldiğinde nereden yürüyeceğini, eşyaları nereye bırakacağını, müziği ne zaman başlatacağını söyledi. Beni planın dışında tutarak konuşuyordu. Buna dikkat ettiğini sanmıyorum. Onun için zaten öyleydi.
-
-Onu dinlerken midemin içinde ilk kramp girdi.
+Onu dinlerken ilk mide krampi girdi. Belki kramp degildir bilmiyorum ama buz gibi soguk bir kure karnimda dolasiyordu resmen.
 
 “İyi misin?”
 
-“Evet.”
+“Evet.” diyebildim zorlukla, bir kolumu karnima bastirarak. Iyi değildim.
 
-Değildim.
+“Karnin mi agriyor?”
 
-“Gece burada olmayacaksın,” dedi.
+“Sanirim ama onemli degil” diye yanitladim.
 
-“Bunu daha önce konuştuk.”
-
-“Yeterince konuşmadık.”
-
-“O zaman yine konuşuruz.”
-
-Doğa cevap vermedi. Denizden gelen rüzgâr saçlarını yüzüne savuruyordu. Birkaç teli ağzına yapıştı; eliyle çekip kulağının arkasına attı. Çok sıradan bir hareketti. Yine de içimde bir şey o hareketi hemen sakladı.
-
-Otele döndüğümüzde öğle olmamıştı. Doğa duş almak istedi. Ben pencerenin yanındaki küçük masaya oturup sana birkaç satır yazmaya başladım. Yazmak bile denmezdi; kelimeleri yakalamaya çalışıyor, sonra üstlerini çiziyordum.
+Otele döndüğümüzde öğle civariydi. Doğa duş almak istedi. Ben pencerenin yanındaki küçük masaya oturup sana yazmaya başladım. Dogayla yaklasik bir yillik deneyimimi dissallastirmaya calismak iyi geldi. Sanki gercek degil de bir oykudeymisiz gibi. Sanki ertesi gun Doga'yi sonsuza kaybetmeyecekmisim gibi. Hizli yazmak zorundayim ve bu cok yorucu. Sana bir yandan butun onemli detaylari vermek istiyorum ama zihin makine degil ki,... pek cok onemli sey kaciyor, pek cok onemsiz sey yaziya giriyor.
 
 Doğa banyodan çıktığında hâlâ masadaydım.
 
 “Kime yazıyorsun?”
 
-Bu, bana sorduğu ilk gerçek kişisel sorulardan biriydi.
+Bu, bana sorduğu ilk gerçek kişisel sorusuydu.
 
 “Irmak’a.”
 
-“Kim Irmak?”
+“Irmak kim?”
+
+Inanilir gibi degildi, normal bir insan, arkadas gibi muzisyen olmayan biri hakkinda soru soruyordu.
 
 Kalemi elimde çevirdim.
 
@@ -1514,165 +1492,192 @@ Kalemi elimde çevirdim.
 
 “Bilmiyorum.”
 
-“Bilmiyor musun?”
+“Romantik ilgin yok yani?”
 
-“Cem’le evli. Bir çocukları var.”
+“Cem diye başka bir arkadaş var. Onunla evli. Bir çocukları var.”
 
-Doğa havluyla saçlarının ucunu sıktı. Konu onu heyecanlandırmış gibi görünmüyordu; yalnızca az önce eksik bıraktığı bir hesabı tamamlamaya çalışıyordu.
+"Yani?"
+
+"Yani evet arkadasim iste ikisi de"
+
+Bu sorgulama beni rahatsiz etmisti. Doganin beni ilk sinirlendirdigi an...
+
+"Ama bilmiyorum dedin az once"
+
+"Dedim ya evli ve cocuklu, ne onemi var..." Cumlemi oylece yarida kestim. Bir an konunun kapandigini sanip rahatladim.
+
+Doğa havluyla saçlarının ucunu sıktı. Yüzünden merak, saskinlik veya konuya en ufacik bir ilgi okunmuyordu. Ama yine de devam etti:
+
+"Yani umutsuzluktan dolayi arkadasim diyorsun?"
+
+“Ben öyle bir şey söylemedim.”
+
+“Cem’le evli dedin. Çocuğu var dedin.”
+
+“Çünkü var.”
 
 “Ona hiç söyledin mi?”
 
 “Neyi?”
 
-“Ne olduğunu.”
+“Senin için yalnızca bir arkadaş olmadığını. Ya da en azından bundan emin olmadığını.”
 
 “Hayır.”
 
-“O zaman nereden biliyorsun?”
+"Baska bir sekilde romantik hislerinin oldugunu belli ettin mi?"
 
-“Evli dedim. Çocuğu var.”
+Sozunu hemen kestim.
 
-“Irmak Cem’le evli. Cem Fuat değil. O halde Irmak Fuat’ı sevemez.”
+"Hayir tabi ki"
 
-“Doğa.”
+Yarim dakika kadar sustuk. Ayakta dikilmis bana bakiyordu. Sonunda
 
-“Ne? Mantığını söylüyorum. Çok temiz. Çok zavallı.”
+"Irmak Cem'i seviyor, Cem ile Fuat ayni kisiler degil, demek ki Irmak Fuat'i sevmiyor"
 
-Bir şey demedim.
+Ilk once anlamadim ama ikinci cumlesiyle nereye gittigini anlar gibi oldum.
 
-“Ben aşktan anlamam,” dedi. “Pek ilgimi çektiği de söylenemez. Ama insanların hayatı böyle donmuş cümlelere çevirmesine dayanamıyorum. Sen ona hiç etkimemişsin, sonra da sonucun kesin olduğunu söylüyorsun.”
+"Irmak evli, evliler kocasini sevebilir yalnizca, Fuat Irmagin kocasi degil, demek ki...Sevmenin tanimina gelirsek... Anliyor musun sacmaligi? Insan zihni ve mantigi doganin akiskanligini, bagintililigini, karmasikligini ve ne derler Diya..."
 
-“Etkimek?”
+"Diyalektigini mi demek istiyorsun"
 
-“Başka ne diyeceğim?”
+"Evet, diyalektigini. Tesekkurler. Evet diyalektigini nasil da gormezden geliyor. Bu iletisim sorunu degil, yasami, dogayi algilama sorunu. Muzik iste bu acidan da mukemmel. Akiskan, karmasik, kontrastlarin butunlugu..."
 
-Bir süre düşündü. Belli ki bu konuya ayıracak fazla sabrı yoktu.
+"Konuyu ne zaman muzige getirecegini merak ediyordum" diyip gulumsedim.
 
-“Dayım Diren’i seviyormuş,” dedi. “Diren başkasıyla birlikteyken bile vazgeçmemiş. Bir şeyler yazmış onun için. Küçük bir roman mı, novella mı, artık neyse. Bunu bana yıllar önce anlatmıştı. Ben de ona, 'Dayı, bunlar benim için o kadar boş konular ki Bach yaşasaydı belki ona aşk hakkında soru sorardım,' demiştim.”
+Onun yanit vermesine firsat vermeden devam ettim:
 
-İstemeden güldüm.
+“Bunlar hakkinda kafa yordugunu tahmin etmezdim. Tamam, anladim, diyorsun ki...” Devamini getiremedim. Anladigimdan emin degildim.
 
-Doğa gülmedi. Konuyla ilgisi bittiği anda yüzü yeniden ciddileşti.
+"Diyorum ki, sen Irmaga romantik hisler besliyorsun ama bunu hic bilmemis. Hislerin onun uzerinde hic etkimemis. Buna izin vermemissin. Sonra da o baskasini seviyor diyorsun. Bilse ve Cem'i tercih etse bile bu seni senin onu istedigin gibi istemedigi veya istemeyecegi anlamina gelmez ki! Sevmek, bir kutunun rengi gibi, bir insanin sabit ozelligi degil ki! Ayrica birini sevmek ne demek Tanri askina! Butun dillerden nefret ediyorum!"
 
-“Sana bunu aşk dersi vermek için anlatmıyorum,” dedi. “Seni dünyaya bağlayan bir şey var. Adı Irmak olur, müzik olur, başka bir şey olur. Var. Bu yüzden benimle gelemezsin.”
+Soyledikleri cok karmasik degildi ama ben bizim durumumuza ne kadar uydugunu dusunuyordum. Bir yandan da Doga gibi birinden bu tur konularda azar gibi ders isitmek bana cok tuhaf gelmisti. Benimle ilgili kisisel bir konuda heyecanla bir seyler anlatmaya calismasini iki seye bagladim: Beni onemsiyordu, ve ertesi gune cok az kalmisti!
 
-“Ben de sana bunu söylemeye çalışıyorum. Doğa, sen de varsın.”
+Bizim durumumuz, Irmak, cok farkli degil miydi? En bastan beri belli degil miydi hislerime karsilik veremeyecegin? O hislerimi hic anlamis miydin? Sezmis miydin? Yoksa simdi, bu satirlardan mi ogreniyorsun?
 
-Başını iki yana salladı.
+Bu ustuste binen sonucsuz dusuncelerin sonunda caresizce:
 
-“Ben burada kalmayacağım.”
+“Ne yapmamı bekliyordun?” diye sorabildim.
 
-Sonra neredeyse yalvarır gibi, ama sesini yükseltmeden:
+“Bir şey yapmanı.”
 
-“Benimle gelmeye çalışma. Sen ölürsün.”
+Bunu öyle basit söyledi ki yeniden sinirlendim ona.
+
+Doğa havluyu omzuna attı.
+
+“Biliyorsun, müzik dışında insanların aşk hayatı falan pek umurumda değildir. Ama dayım Melih’le Diren’in nasıl tanıştığını öğrendiğimde dayıma bir kez daha hayran kalmıştım.”
+
+Baska bir sok daha yasadim. Simdi de kendi hayatindan muzikle ilgisiz bir seyi anlatmaya basliyor...
+
+“Dayım bir partiye gitmiş. Diren’i, yani tek askini ve karisini, ilk kez orada görmüş. Kız bütün gece küçük grupların arasında dolaşıyormuş. Bir masaya gidiyor, az önce birbirine söyleyecek laf bulamayan insanlar beş dakika sonra kahkaha atıyor. Başka bir gruba geçiyor, orası hareketleniyor. Sonra dans ediyor, gülüyor, başka yere gidiyor. Dayımın anlattığına göre nereye gitse orada küçük bir yaşam patlaması oluyormuş.”
+
+Doğa istemeden gülümsedi.
+
+“Bütün gece uzaktan izlemiş. Sonra kendi kendine, ‘Ben bu kadınla yaşamalıyım,’ demiş.”
+
+“Biraz hızlı değil mi?”
+
+“Çok hızlı. Üstelik Diren’in sevgilisi varmış. Yakinda nişanlanacaklarmış. Dayım da bunu biliyormuş. O yüzden Diren'i dikkatlice, caktirmadan ama surekli izliyormus”
+
+Bir sigara yakip balkona cikti. Ordan hala masa basindaki "arkadas"ina anlatmaya devam etti. Bir an her seyi unutmustum, mutluydum butun hucrelerimle. Ah Irmak, onunla normal konulardan konusmak ne kadar guzeldi, ne kadar lezizdi!
+
+“Partiden çıkacakken Diren’i dışarıdaki tahta terasta tek başına sigara içerken görmüş. Gitmiş yanına. ‘Biliyorum, bunu söylemek çok uygunsuz. Belki bana kızacaksın, belki arkadaşlarına anlatıp benimle dalga geçeceksin. Tam cikiyordum, seni burada tek başına görünce hissettiklerimi söylemeden gidemedim. Çok hızlı konuşuyorum çünkü birazdan biri gelebilir. Şu anda hissettiğim şeyin normal olmadığını ben de biliyorum,’ demiş.”
+
+“Sonra?” diye heyecanla sordum. Sigrasindan bir firt daha aldi. Dumanini belki oyun olsun diye masama dogru ufledi.
+
+“Sonra daha da beterini söylemiş.”
+
+Doğa artık açıkça eğleniyordu.
+
+"Ona soyle bir seyler soylemis iste:
+‘Hayatımda gördüğüm en güzel, en tatlı şeysin. Senin bununla ilgili ne düşündüğün şu anda önemli değil. Bende böyle bir sevgi uyandırdığın için sana teşekkür etmek istedim. Sen farkında ol ya da olma, ben hayatımı sana göre hazırlayacağım. Çünkü çok tuhaf biçimde bizim bu hayatı birlikte yaşayacağımıza inanıyorum. Lütfen bir şey söyleme. Yalnızca bunu duymanı istedim’ demiş ve çekip gitmiş.”
+
+“Bu kadar mı?”
+
+“Bu kadar.”
+
+Bir an sustu.
+
+“Sonra gerçekten birlikte yaşamışlar işte.”
+
+Bana baktı. Bir şey söylemedim. Balkona ciktim ben de.
+
+Denizi izliyormus gibi yapiyordum ama hic bir sey izledigim yoktu. O an bir seyler dusunebiliyor muydum onu da bilmiyorum.
+
+“Seni dünyaya bağlayan en azindan bir şey var” dedi. “Bu yüzden  benimle gelemezsin iste. Cunku gelirsen olursun.”
+
+“Sen de sunu anlamiyorsun, Doğa” dedim sesimi hafifce yukselterek.
+
+"Beni hayata baglayan sey Irmak degil, sensin. Irmak... nasil diyeyim... coktan kurudu! Ve simdi sen de gideceksin..."
+
+Nereye varmak istedigimi anlamis gibi hemen başını iki yana salladı.
+
+“Ben burada kalmayacağım.” dedi ve iceri gecti.
 
 Bir süre sonra Doğa biraz yürümek istediğini söyledi. Ben odada kaldım.
 
-Yatağın kenarına oturdum. O çıktıktan sonra odanın sessizliği birkaç saniye içinde ağırlaştı. Az önceki konuşma zihnimde dönüp duruyordu. Cem. Çocuk. Irmak. Etkimemek. Dünyayla bağ.
+Yatağın kenarına oturdum. O çıktıktan sonra odanın sessizliği birkaç saniye içinde ağırlaştı. Az önceki konuşma zihnimde dönüp duruyordu.  Irmak. Yirmi kusur yillik hislerim. Etkimeyen hislerim. Dünyayla bağim. Doga. Irmak. Muzik.
 
-Bir akşam üçümüz oturuyorduk. Neresi olduğunu şimdi hatırlamıyorum; belki bir bar, belki senin sevdiğin o dar masalı yerlerden biri. Sana bir şey anlatıyordum. Gerçekten önemsediğim bir şeydi; cümlenin ortasında kendimi fazla açık ettiğimi fark edip sustum. Pat diye. İnsan böyle anlarda karşısındakinin durduğunu fark etmesini bekliyor. Sen fark etmedin. Cem'e bakıyordun. O da sana bir şey söylüyordu, sıradan bir şey muhtemelen, ama senin yüzün onun söylediklerinin içinde yumuşamıştı. Benim cümlem masanın üstünde kesik bir ip gibi kaldı. İkiniz de görmediniz. O gece erken kalktım. Eve dönerken kendime aynı soruyu sordum: Neden Cem? Neden ben değilim?
+Hislerim sen de hic tesir eder miydi ki Irmak? Bunu sorar sormaz bir suru yaralayici ani geliyor aklima. Hatirlarken yeniden yasiyorum. Yeniden acitiyor.
 
-Sonra sizi çocukla gördüğüm günü hatırladım. Sokakta karşılaşmıştık. Çocuğunuz elini tutuyordu; sen eğilip montunun fermuarını düzelttin. Cem poşetleri öbür eline aldı, senin çantana yer açtı. Hiçbiri büyük bir şey değildi. Tam tersine, insanı asıl ezen de buydu. Her şey o kadar doğal, o kadar yerli yerindeydi ki ben kendimi o görüntünün kenarında yanlışlıkla kalmış bir fazlalık gibi hissettim. O çocuğun yüzüne bakınca imkânsızlık soyut bir bilgi olmaktan çıktı. Artık yalnızca Cem'i seçmiş değildin; onunla bir dünya kurmuştun.
+Bir akşam üçümüz oturuyorduk. Neresi olduğunu şimdi hatırlamıyorum; belki bir bar, belki senin sevdiğin o dar masalı yerlerden biri. Sana bir şey anlatıyordum heyecanla. Gerçekten önemsediğim bir şeyi, David Lynch'i anlamamisim. Beynimdeki kalin halatlar izin vermemis. Filmlerini yeniden izleyecegim diyordum. Sonra farketttim ki sen beni hic ama hic dinlemiyordun. Cem'e bakıyordun. Cem zaten sikici bulurdu bu tur konulari. Aksiyon adamiydi o. Oturdugumuz kafenin penceresinden disardaki yapay selalelyi izliyordu. Sen ise onu izliyordun. Cumlemin ortasinda pat diye durdum. Cümlem masanın üstünde kesik bir ip gibi kaldı. Farkina bile varmadiniz. O gece yaninizdan erkenden kalktım. Eve dönerken kendime aynı soruyu sordum durdum: Neden Cem? Neden ben değilim?
 
-Bir de eski Ganita gecesinden sonra kaldığım otel odası vardı. Saatlerce Julee Cruise'un *Nightingale* parçasını dinlemiş, sana mektuplar yazıp yırtmıştım. Birini yırtmamış, yalnızca o parçayı göndermiştim. Mesajın içinde umut vardı, ama açık edilmekten korkan, kendi kendinden utanan bir umut. Cevap vermemiştin. Tek bir kelime bile.
+Sonra sizi çocugunuzla gördüğüm günü hatırladım. Bulusmaya onu da getirmeniz beni uzmustu. Cemle evlenmistin, onu secmistin ama gecmisteki o harika uclunun bir sekilde, minimum duzeyde de olsa devam edebilecegini dusunuyordum. Cocugu gorunce o donemin kapandigini anladim. Çocuk elini tutuyordu; sen eğilip montunun fermuarını düzelttin. Cem poşetleri öbür eline aldı, senin çantana yer açtı. Hiçbiri büyük bir şey değildi. Tam tersine, insanı asıl ezen de buydu. Her şey o kadar doğal, o kadar yerli yerindeydi ki ben kendimi o görüntünün kenarında yanlışlıkla kalmış bir fazlalık gibi hissettim. O çocuğun yüzüne bakınca imkânsızlık soyut bir bilgi olmaktan çıktı. Artık yalnızca Cem'i seçmiş değildin; onunla bir dünya kurmuştun. Ve o dunyada gecmisteki o ucuncu arkadasa yer yoktu. Zaten ksia bir bulusma oldu. Israrlarima ragmen eve gitmeniz gerekiyordu ve gittiniz. Ah Irmak, hayatimda cok yalniz hissettim, ama en cok o an yalniz hissettim diyebilirim. Cok az insan olmustu hayatimda, annem, teyzem, ve siz... Hepsi bir sekilde terketmisti beni iste. Yapayalnizdim.
 
-Bu üç anı düşündükçe Doğa’nın haksız olduğundan emin olmaya çalıştım. Irmak için hiçbir şey yapmamıştım belki, ama bazı şeyler insan söylemeden de belli olurdu. Bazı kapıların kapalı olduğunu anlamak için kolu zorlamak gerekmezdi. Irmak’ın Cem’e bakışı, onunla kurduğu hayat, o çocuğun varlığı... Bunlar bana yıllarca yeterli kanıt gibi gelmişti.
+Uc yil once Ankara'da kesismisti yollarimiz. Hatirlarsin. Orda yalnizca ikimize ait 1-2 saat gecirmistik. Universitedeki eski gunleri ozledigini soylemistin. Belki tesaduf olmustu ama sadece ikimize ait anilari hatirlamistin o gorusmede. Belki zihnimin oyunuydu ama sanki bir kac kez dogrudan gozlerime bakmistin. Ikinci bakisin en uzunuydu. O bakista seninle ilgili ilk kez umutlandim, aklimin guclu ve emin itirazlarina ragmen. Sonrasinda saatlerce Julee Cruise'un Nightingale parçasını dinlemiş, sana mektuplar yazıp yırtmıştım. Sonra sarkiyi gonderdim sana. Yillar sonra bir ilk, tipki Cem'le sevgili olmandan once yaptigim gibi. Hiv bir yanit vermemistin. Tek bir kelime bile.
+
+Bu ve benzer umut kirici anilari yeniden yasayinca Doğa’nın haksız olduğundan emin olmaya basladim. Senin için hiçbir şey yapmamıştım belki, ama bazı şeyler insan söylemeden de belli olurdu. Bazı kapıların kapalı olduğunu anlamak için kolu zorlamak gerekmezdi.
 
 Yine de Doğa’nın sorusu odada kalmıştı:
 
-**Nereden biliyorsun?**
+Nereden biliyorsun?
 
 Cevap veremiyordum.
 
-Seni yalnızca bir fikir gibi sevmedim Irmak. Keşke öyle olsaydı. Bir fikri insan zihninde taşıyabilir, utanırsa daha düzgün bir kavrama çevirebilir, yorulursa rafa kaldırabilir. Sende öyle olmadı. Gülüşün vardı önce. En kötüsü oydu belki. Bir şeyi tam anlamadan önce güldüğünde yüzünde beliren o açıklık, sonra anladığın anda gözlerinin parlaması... Heyecanlı bir şey anlatırken sesinin incelip çocuklaşması, kelimelerin hızlanınca ellerinin de onlara yetişmeye çalışması. Bir masada karşıma oturduğunda yalnızca konuşmanı değil, susarken bardağın kenarında dolaşan parmağını, saçını kulağının arkasına atışını, birden ciddileşip gözlerime bakışını da istiyordum.
+Seni yalnızca bir fikir gibi, romantik bir soyutlama, platonik bir idea gibi sevmedim Irmak. Keşke öyle olsaydı. Bir fikri insan zihninde taşıyabilir, gerekirse degistirebilirm yorulursa rafa kaldırabilir, fikirlerin pek de bir agirligi yok insanda. Sana arzum kanli canliydi. Gülüşün vardı önce. En kötüsü oydu belki. Gulerken gözlerinin parlaması... Heyecanlı bir şey anlatırken sesinin incelip çocuklaşması, kelimelerin hızlanınca ellerinin de onlara yetişmeye çalışması. Ses tonunun inceligi, narinligi... ve tabiki bedenin kivrimlari. Seni ilk gordugumden beri arzuluyordu ruhum ve bedenim. Ve trajik olan su ki seni ilk gordugumde ani bir cig gibi o kopan o arzu hala ayni siddete sahip.
 
-İstiyordum.
+Nightingale... Su an sana yazarken dinliyorum yeniden. Sanki ilk kez dinliyormusum gibi guzelligine hayran kaliyorum.
+"Bir gün benimle olacaksın", "kalplerimiz baykusla birlikte uçacak"... Bu umut dolu sozleri, bu harikulade muzigi, yirmi yil boyunca buyuk bir aci ve umutsuzlukla dinlemek ne kdar trajik degil mi?
 
-Bunu sana hiçbir zaman söylemedim.
+Bana bu kadar ilgisiz duran bir insan, beni dünyaya nasıl bu kadar güçlü bağlayabiliyordu? Neden Cem, Irmak? Neden ben değilim? Hayatım boyunca sorup durduğum bu iki aptal soru, o odada yine gelip karşıma oturdu. Acaba hastalığımın kokusu mu itti seni? İnsanın içindeki çürüme bazen yüzüne, sesine, susuşuna sızıyor mu?
 
-O gece şarkıdaki kadın sesi bana önce senin sesin gibi gelmişti. Sonra senin sesin olmaktan çıkıp seni istediğim yerin sesi olmuştu. Şimdi, yıllar sonra parça zihnimde yeniden çalarken kadının sesi Doğa'nın sesine dönüşüyor. Daha doğrusu, Doğa'yı müziğin içinden ayıramıyorum artık.
+Doğa odaya döndüğünde şehirde biraz dolaşmayı teklif etti. Kabul ettim. Bu bedeni uzerine kabus gibi coken zihinle basbasa kalamazdim artik.
 
-Sözleri de doğru hatırlamıyordum. Belki zaten doğru hatırlamak istemiyordum. Zihnim onları kendine göre bozuyordu: Bir gün benimle olacaksın, diyordu sanki. Sonra hemen değişiyordu: Bir gün benimle olacaktın. Sonra daha da bozuluyordu: Bir gün seninle olacaktım ve kalplerimiz birlikte uçacaktı. Olmadı. Hiç olmayacak bir öyküydü belki en başından. Ama yine de güzel bir öyküydü bizimkisi, değil mi?
+Bol bol Yürüdük. Yemek yedik. Bir yerde çay içtik. Bir dükkânda Doğa gereksiz bir şeye gereğinden fazla para verdi. Sokakta çalan bir müziği duyup bestecisini tahmin etmeye çalıştık. Yanlış bildim. Bununla yarım saat dalga geçti.
 
-Hayır. Bizimkisi bile değildi.
+Normal bir günde normal iki insanin yapabilecegi her şeyi yaptık. Doğa’yı hiç bu kadar mutlu görmemiştim. Ama bazen durduk yere:
+“Sonunda bu lanet yerden ayrılıyorum,” diyordu. Sevmedigi is yerinden ayrilan birinin veda partisinde cok coskulu ve mutlu olmasi gibi...
 
-Benim kendi kendime yazıp durduğum bir öyküydü.
+Buna benzer seyler soylediginde içimden her seferinde aynı dusunceler geçiyordu: Ama benden de ayrılıyorsun. Beni terkediyorsun. Sonsuza dek. Bu konusmalari bir daha yapamayacagiz. Birlikte muzik dineleyemeyecegiz. Inanilmaz muzik bilginle beni bir daha sok edemeyeceksin. Benimle birlikte yuruyen bu beden evrenin kitabindan silinecek.
 
-Bana bu kadar ilgisiz duran bir insan, beni dünyaya nasıl bu kadar güçlü bağlayabiliyordu? Neden Cem, Irmak? Neden ben değilim? Hayatım boyunca sorup durduğum bu iki aptal soru, o odada yine gelip karşıma oturdu. Acaba hastalığımın kokusu mu itti seni? İnsanın içindeki çürüme bazen yüzüne, sesine, susuşuna sızıyor mu? Ben seni isterken bile, daha baştan kaybetmiş biri gibi mi görünüyordum?
-
-Sonra daha basit ve daha korkutucu bir şey fark ettim. Beni dünyaya en kesin bağlayan şey zaten hep müzikti. Irmak onun içinde duruyordu. Doğa da artık onun içindeydi. Belki Doğa’yı kaybetmekten korktuğum kadar, onunla birlikte müziğin açtığı o son kapıyı da kaybetmekten korkuyordum. Belki müzik Doğa’nın çıkış yoluysa, benim de dünyada kalma nedenimdi. Ya da ikisi artık birbirine karışmıştı.
-
-Bu düşünceyi sevmedim.
-
-Ama kurtulamadım.
-
-Doğa odaya döndüğünde şehirde biraz dolaşmayı teklif etti. Kabul ettim. Odada kalırsam aklımın kendi etrafında dönüp sonunda beni parçalayacağını hissediyordum.
-
-Ne yaptığımızın listesini çıkarmak istemiyorum. Zaten değerli olan yaptıklarımız değildi. Yürüdük. Yemek yedik. Bir yerde çay içtik. Bir dükkânda Doğa gereksiz bir şeye gereğinden fazla para verdi. Sokakta çalan bir müziği duyup bestecisini tahmin etmeye çalıştık. Yanlış bildim. Bununla yarım saat dalga geçti.
-
-Normal bir günün yapabileceği her şeyi yaptık.
-
-Doğa’yı hiç bu kadar mutlu görmemiştim.
-
-Bazen durduk yere:
-
-“Sonunda bu lanet yerden ayrılıyorum,” diyordu.
-
-İlkinde güldüm.
-
-İkincisinde gülümser gibi yaptım.
-
-Üçüncüsünde hiçbir şey söylemedim.
-
-İçimden her seferinde aynı cümle geçiyordu:
-
-**Ama benden de ayrılıyorsun.**
-
-O gün Doğa’nın yaptığı her sıradan şeyin üzerine görünmez bir “son” kelimesi yapışıyordu. Son kez çay içişi. Son kez bir sokaktan karşıya geçişi. Son kez bir garsonun getirdiği yanlış siparişe sinirlenişi. Son kez saçını kulağının arkasına atışı. Son kez bana dönüp:
-
-“Fuat, dinliyor musun?”
-
-deyişi.
-
-Bir ara gerçekten dinleyip dinlemediğimi anlayamadım. Doğa’nın sesi, sokakta çalan müzikle ve gece dinleyeceğimiz parçanın uzaktan gelen korosuyla birbirine karışıyordu. Bana sıradan bir soru sormuştu; ben onu bir melodinin tekrar eden motifi gibi duymuştum. Korktum. Çünkü bunun saçma olduğunu biliyordum. Doğa konuşuyordu. Müzik çalıyordu. İkisi aynı şey değildi.
-
-Ama o gün zihnim bu ayrımı eskisi kadar kolay yapamıyordu.
-
-İnsan birini kaybetmek üzere olduğunu bildiğinde hafızası henüz yaşanmamış anıları toplamaya başlıyor.
+O gün Doğa’nın yaptığı her sıradan şeyin üzerine görünmez bir “son” kelimesi yapışıyordu. Son kez çay içişi. Son kez bir sokaktan karşıya geçişi. Son kez bir garsonun getirdiği yanlış siparişe sinirlenişi. Son kez saçını kulağının arkasına atışı. Son kez bana dönüp “Fuat, dinliyor musun?” deyişi.
 
 Günün ilerleyen saatlerinde midem iyice bozuldu. Bir tuvalete kapanıp kustum. Yüzümü yıkadım. Aynada rengi çekilmiş yüzüme baktım.
 
-“Harika,” dedim kendime. “Ölmeden önce hastalanmayı da başardın.”
+“Harika” dedim kendime. “Kendini oldurmeden önce hastalanmayı da başardın”.
 
-Asıl korkunç olan hastalanmak değildi. Artık ne yapacağımı biliyor olmamdı. Doğa izin verirse onunla atlayacaktım. İzin vermezse birkaç saniye sonra arkasından. İki görüntü gün boyunca zihnimde dönüp durdu: elini tutup birlikte boşluğa bırakılmak; sonra aynı boşluğa tek başıma, biraz geç kalmış gibi düşmek.
+Asıl korkunç olan hastalanmak değildi. Artık ne yapacağımı kesinkes biliyor olmamdı. Doğa izin verirse onunla atlayacaktım. İzin vermezse birkaç saniye sonra pesinden gidecektim. İki görüntü gün boyunca zihnimde dönüp durdu: elele tutusan iki kisinin kendilerini bosluga birakisi; sonra aynı boşluğa tek başıma firlatmam kendimi. İkincisi daha çıplaktı. Daha müziksiz. Daha çok intihar.
 
-İkincisi daha çıplaktı. Daha müziksiz. Daha çok intihar.
+Onca yuruyus ve gezmeden sonra otele dönmeyi teklif etmedim. Doğa da etmedi. Akşam yemeğine kadar yürümeye devam ettik. Bir restorana girdik. Siradan bir restorandi ama oyle degilmis gibi davraniyordu.
 
-Otele dönmeyi teklif etmedim.
+Masaya oturduğumuzda yemek yiyemiyordum. Catalimla cok az yemek aliyor, ama geri tabaga birakiyodum.
 
-Doğa da etmedi.
-
-Akşam yemeğine kadar yürümeye devam ettik.
-
-Masaya oturduğumuzda yemek yiyemiyordum. Çatalı birkaç kez tabağın içinde dolaştırdım. Doğa karşımdan beni izledi.
-
-“Neyin var senin böyle?”
+“Neyin var senin böyle?” dedi sonunda Doga.
 
 “Bir şeyim yok.”
 
-“Fuat.”
+“Fuat...”
 
 “Sadece midem.”
 
 “Dökülüyorsun.”
 
-Bunu öyle sıradan söyledi ki dayanamadım.
+Bunu öyle sıradan söyledi ki dayanamadım. Gun boyu aklimda olan ve gecen her saaatle daha cok soylemek istedigim seyi aniden kusar gibi soyledim:
 
-“Bu gece gitme,” dedim.
+“Bu gece gitme” dedim.
 
 Yüzündeki ifade değişti.
 
-Devam ettim.
+Konusmakta bile zorlaniyordum ama devam ettim.
 
 “Ya denize çakılacaksın ya melodiye dönüşeceksin. Hangisi olursa olsun sonuç benim için aynı. Sen olmayacaksın.”
 
@@ -1684,9 +1689,7 @@ Doğa cevap vermedi.
 
 “Bak bugün,” dedim. “Bütün gün iyiydik. Yürüdük, konuştuk, güldük. Bunu yapabiliriz. Yarın da yapabiliriz. Sonraki gün de. Buna mecbur değiliz.”
 
-Doğa masanın üzerinden elimi tuttu.
-
-Eli sıcaktı.
+Doğa masanın üzerinden elimi tuttu. Eli yumusacik ve sıcaktı.
 
 “Bana normal bir hayat öneriyorsun.”
 
@@ -1694,15 +1697,15 @@ Eli sıcaktı.
 
 “Ben onu yıllarca istedim Fuat.”
 
-Sesi sakindi. Beni ikna etmeye çalışıyor gibi değil, çoktan olmuş bir şeyi anlatıyor gibiydi.
+Sesi sakindi. Beni ikna etmeye çalışıyor gibi değildi. Daha cok anlamami istiyordu.
 
-“Gerçekten denedim. İnsanların istediği şeyleri istemeye, onların sevdiği şeyleri sevmeye, burada kendime bir yer açmaya çalıştım. Belki bir gün düzelirim diye düşündüm. Sonra düzelmek dediğim şeyin başka biri olmak olduğunu anladım.”
+“Gerçekten denedim. İnsanların istediği şeyleri istemeye, onların sevdiği şeyleri sevmeye, burada kendime bir yer açmaya çalıştım. Belki bir gün düzelirim diye düşündüm. Sonra düzelmek dediğim şeyin kendimi baska bir sey olmaya zorlamak oldugunu anladim. Hem de defalarca.”
 
 Elimi biraz daha sıktı.
 
 “Ben artık kim olduğumu biliyorum.”
 
-“Biliyorum.”
+“Biliyorum. Muziksin!”
 
 “Hayır. Bilsen benden kalmamı istemezdin.”
 
@@ -1788,200 +1791,524 @@ Güldüm.
 
 Odaya çıktığımızda gök neredeyse tamamen kararmıştı. Yağmur birkaç dakika içinde cama ve balkon korkuluğuna sert sert vurmaya başladı. Uzakta şimşekler çakıyordu.
 
-Doğa montunu yeniden giyip balkona çıktı.
+Ben balkona çıktım.
 
-Ben de peşinden gittim.
-
-Yan yana durduk.
-
-Omuzlarımız neredeyse birbirine değiyordu. Aşağıdaki sokak yağmurun altında parlıyor, arabaların farları ıslak asfaltın üzerinde uzayıp kırılıyordu. Karadeniz karanlığın içinde seçilmiyordu artık. Yalnızca orada olduğunu biliyorduk.
+Karadeniz karanlığın içinde seçilmiyordu artık. Aşağıdaki sokak yağmurun altında parlıyor, arabaların farları ıslak asfaltın üzerinde uzayıp kırılıyordu. Denizi göremiyordum ama orada olduğunu biliyordum. Birkaç saat sonra onun biraz yukarısında, kayaların kenarında olacağımızı da.
 
 Telefonumu çıkarıp saate baktım.
 
-Doğa göz ucuyla gördü.
+Daha vardı.
 
-“Daha var.”
+Kapının açıldığını duydum.
 
-Telefonu cebime koydum.
+Doğa montunu giymişti. Bir elinde şarap şişesi, ötekinde iki kadeh vardı. Kadehlerden birini bana uzattı.
 
-Bir süre konuşmadık.
+“Hadi,” dedi. “Son şaraplarımızı içelim.”
 
-Sonra Doğa montunun cebinden küçük bir fotoğraf çıkardı.
+Kadehi aldım.
 
-Yağmur değmesin diye bedenini hafifçe içeri çevirdi ve fotoğrafı bana uzattı.
+Son.
 
-Üç kişi vardı.
+O gün bu kelimeyi kaç kez duymuştum bilmiyorum. Son çay. Son yürüyüş. Son yemek. Son gece. Ama ilk kez o anda kelimenin içi gerçekten doldu.
 
-Bir kadın, yanında ona bakmakta olan kıvırcık saçlı, gözlüklü bir adam; birkaç adım geride de kameraya doğru anlamsız biçimde sırıtan başka biri.
+Bir yudum aldım.
 
-“Kim bunlar?”
+Ben gerçekten ölecek miydim?
 
-Doğa fotoğrafa baktı.
+Soru o kadar yalındı ki bugüne kadar kurduğum bütün büyük cümleleri bir anda çocukça gösterdi. Melodileşmek, birlikte gitmek, Doğa’yı yalnız bırakmamak, sonuna kadar yanında olmak... Hepsinin altında sonunda tek bir fiziksel gerçek vardı: Birkaç saat sonra kendimi yüksek bir yerden boşluğa bırakacaktım ve büyük ihtimalle bedenim kayalara çarpacaktı.
 
-“Dayımın eşi Diren. Arkadaki sapsal da dayım, Melih.”
+Ben.
 
-Gülümsedi ama gülümsemesi hemen söndü.
+Bu beden.
 
-“Fotoğrafı annem çekmiş.”
+Bu baş, bu eller, biraz önce kadehi tutan parmaklar.
 
-İlk kez ailesinden kendi isteğiyle söz ediyordu.
+Bir süre kadehe baktım.
 
-Bir şey söylemedim.
+Hayatta yaptığımız hemen her şey, farkında olsak da olmasak da, hayatın devam edeceğini varsayıyor. Yemek yiyorsun çünkü birkaç saat sonra yine o bedenin içinde olacaksın. Bir yere bilet alıyorsun çünkü oraya varacak bir sen olacak. Uyumaya gidiyorsun çünkü sabah diye bir şeyin sana da geleceğine güveniyorsun. En anlamsız alışkanlıklarımızın bile gizli bir yarını var.
 
-“Ölmeden birkaç gün önce bana verdi.”
+Benim birkaç saat sonra yapacağım şeyde yarın yoktu.
 
-Fotoğrafı geri aldı. Başparmağını kenarında gezdirdi.
+İlk kez bir eylemi hayatımın içinde bir sonraki noktaya ulaşmak için değil, hayatın dışına çıkmak için yapacaktım.
 
-“Önce dayım öldü. Sonra Diren. Sonra annem.”
+Bu düşünce midemin içini yeniden sıktı.
 
-Yağmur korkuluğa vuruyordu.
+Doğa yanımda sessizce içiyordu. Ona dönüp “Ben vazgeçtim” diyebilirdim. En azından teorik olarak. İstanbul’a dönerdim. Uçağa biner, kemerimi bağlar, hostesin ne dediğini dinlemeden pencereden aşağı bakar, sonra eve giderdim.
 
-“Hepsi gittiler,” dedi. “Bu kaldı.”
+Sonrası?
 
-Fotoğrafa baktı.
+İşte orada zihnim yine duruyordu.
 
-“Bazen en korkuncu bu galiba.”
+Ganita’ya ilk geldiğim zamanı düşündüm. Depresyonun üzerime kapandığı o iki ayı. Sabahları yataktan çıkmanın bir karar haline geldiği, geceleri içimdeki uğultunun susması için kendimi tüketene kadar içtiğim günleri. O zaman bile hayatımda henüz Doğa yoktu. Kaybettiğim belirli bir insan yoktu. Yalnızca ben vardım ve bana yetmeyen hayatım.
 
-“Nesi?”
+Şimdi Doğa gerçekten giderse ne olacaktı?
 
-“Kalması.”
+Trabzon’dan tek başıma dönecektim. İstanbul’daki eve girecektim. Onun gönderdiği müzikler telefonumda duracaktı. Bir daha açmayacağı kapıyı, gelmeyecek mesajı, bir yerlerde karşıma çıkmayacağını bilerek yaşayacaktım. Üstelik bu kez yalnızca bir insanı değil, hayatımda ilk kez gerçekten içeri aldığım, beni kendi kapalı dünyasının bir yerine kabul etmiş tek insanı kaybetmiş olacaktım.
 
-Ne demek istediğini hemen anlamadım.
+Ölmek mi daha korkunçtu, bunu yaşamak mı?
 
-Doğa fotoğrafı biraz kaldırdı.
+Bilmiyordum.
 
-“Şu anda bu kâğıdın içinde bir sürü şey var. Annemin bunu çekerken nerede durduğunu biliyorum. Dayımın niye öyle sırıttığını biliyorum. Diren’in nasıl biri olduğunu biliyorum. Annemin bunu bana verirken yüzünün nasıl olduğunu hatırlıyorum.”
+Ölüm daha somuttu. O yüzden daha çok korkutuyordu. Kayalar, düşüş, beden... Bunların hepsini zihnim resmedebiliyordu. Doğa’sız hayat ise biçimsizdi. Belki tam da bu yüzden bazen daha korkunç geliyordu; nereye kadar uzanacağını göremiyordum.
 
-Bir an sustu.
+Kadehten bir yudum daha aldım.
 
-“Ben de gidince bunların hepsi gidecek. Fotoğraf belki kalacak.”
+Bir yanım hâlâ o eski, aptalca heyecanın içindeydi. Doğa’yla sonuna kadar gitmek fikrinde, romantik aşkla ilgisi olmayan ama yine de insanı sarhoş eden bir şey vardı. Bir yoldaşlık belki. Kahramanca demek istiyordum; kelimeyi kendime yakıştıramadığım için söylemiyordum. Aynı yere kadar yürümek, son adımda elini tutmak, onu tek başına bırakmamak...
 
-“Yani atılmasından değil, kalmasından korkuyorsun.”
+Belki de kahramanlık dediğim şey ölüm korkusuna sürdüğüm makyajdı.
 
-Başını hafifçe salladı.
+Fark etmezdi.
 
-“İçindekiler gittikten sonra kalmasından.”
+İşe yarıyordu.
 
-Onu ilk tanıdığım geceden beri kişisel bir soru sorduğumda önümde kapanan kapı ilk kez kendi kendine açılmıştı.
+Sonra başka, daha sıradan bir düşünce geldi.
 
-“Bunları bana niye daha önce anlatmadın?”
+Zaten herkes ölmüyor muydu?
 
-Bana baktı.
+Bu gece olmazsa yirmi yıl sonra. Otuz yıl sonra. Bir hastane yatağında, yalnız bir evde, bir sabah banyoda, kim bilir nerede. Belki yirmi yıl daha aynı karanlığın içinde sürünüp sonunda yine ölecektim. Ölümün kaçınılmaz olması onu daha az korkunç yapmıyordu elbette. Ama sanki önümde duran şeyi biraz küçültüyor, “Şimdi değil” ile “hiçbir zaman” arasındaki farkı hatırlatıyordu.
 
-“Sadece müzik lütfen.”
+Doğa kadehini korkuluğun üzerine koydu.
 
-Ağzının bir kenarı kıvrıldı.
+“Çok sessizsin.”
 
-Sonra fotoğrafı iki eliyle tuttu.
+“Düşünüyorum.”
 
-“Atladığımızda bunu sımsıkı elimde tutacağım.”
+“Tehlikeli.”
 
-Bu kez çoğul eki beni ürkütmedi.
-
-Kararımı zaten vermiştim.
-
-“Belki onlar da gelir,” dedi.
-
-“Nereye?”
-
-“Bilmiyorum.”
-
-Fotoğrafa baktı.
-
-“Belki bir fotoğraf olarak değil. Bir ses gibi. Başka bir sese karışırlar. Sonra başka birine.”
-
-Yağmur daha da hızlandı.
-
-“Saçma gelebilir.”
-
-“Bir yıldır seninleyim Doğa. Eşiği çoktan geçtik.”
+“Geç kaldın.”
 
 Gülümsedi.
 
-Fotoğrafı yeniden cebine koydu.
+Yağmur biraz hafiflemişti. Rüzgâr hâlâ sertti.
 
-Bir süre daha balkonda kaldık.
+“Pişman mısın?” diye sordu.
 
-Sonra Doğa içeri girdi.
+Doğrudan cevap veremedim.
 
-Ben girmedim.
+“Hayır,” dedim sonunda.
 
-Yağmurun sesini dinlerken öğlen yarım bıraktığım cümleler aklıma geldi.
+Bu bütünüyle doğru değildi.
 
-Belki başından beri bu mektubu bitireceğimi biliyordum. Belki de insan, hayatının sonuna geldiğini düşündüğünde öyküsünü dönüp dolaşıp onu en çok belirleyen kişiye anlatmak istiyor.
+Ama bütünüyle yalan da değildi.
 
-İçeri girdim.
+Doğa yüzüme birkaç saniye baktı. Sonra şişeyi aldı.
 
-Doğa yatağın üzerine kulaklıkları, telefonları ve küçük bir çantayı dizmişti. Her şeyi bir kez daha kontrol ediyordu.
+“Bir tane daha.”
 
-“Ben biraz yazacağım,” dedim.
+“Ganita’da dengemizi şarapla mı sınayacağız?”
 
-“Ne?”
+“Sen zaten dengeli biri değilsin.”
 
-“Veda mektubu.”
+İkinci kadehleri doldurdu.
 
-“Veda kısmı seninmiş demek.”
+Onunkini de.
 
-“Belli ki.”
+Bunu özellikle hatırlıyorum. Çünkü ertesi sabah, geceyi parça parça toplamaya çalışırken uzun süre aynı görüntüye döndüm: Doğa’nın kendi kadehine de şarap doldurmasına. Demek ki sarhoştu, diye düşündüm önce. Demek ki benim gibi o da biraz gevşemek istemişti.
 
-Masaya oturdum.
+O anda hiçbir şeyden şüphelenmedim.
 
-Ve işte buradayım.
+İkinci kadehin yarısına geldiğimde başımın içindeki düşünceler garip biçimde yavaşlamaya başladı.
 
-Bu mektubun başında sana dünyanın çıkış noktasına nasıl geldiğimi anlatacağımı söylemiştim. Geldim sanırım. Daha doğrusu anlatacak kadar yaklaştım.
+Doğa bir şey anlatıyordu.
 
-Doğa birkaç metre ötemde.
+Müzikten olabilir.
 
-Biraz önce kulaklıkların şarjını üçüncü kez kontrol etti. Şimdi pencerenin önünde duruyor. Cebinde o fotoğraf var.
+Ganita’dan olabilir.
 
-Yağmur hâlâ yağıyor.
+Belki bana ilk tanıştığımız geceyi anlatıyordu. Bir ara “rüzgâr” dediğini hatırlıyorum. Sonra “yanlış duymak” gibi bir şey söyledi. Ya da bunları şimdi ben ekliyorum.
 
-Birazdan Ganita’ya gideceğiz.
+Cümlelerinin başını duyuyor, sonuna yetişemiyordum.
 
-Saat 23.59’da o müzik başlayacak.
+“Doğa...” dedim.
 
-Doğa’nın elini tutacağım ve kendimizi bırakacağız.
+“Efendim?”
 
-Sonrasında ne olacağını bilmiyorum.
+“Biraz fazla içtim galiba.”
 
-Doğa bildiğini düşünüyor.
+“Olabilir.”
 
-Ben bilmiyorum.
+Sesi çok uzaktan gelmiş gibi oldu.
 
-Belki yalnızca düşeceğiz.
+Balkon kapısının kenarına tutundum. Yağmurun sesi önce büyüdü, sonra sanki başka bir odadan gelmeye başladı. Doğa koluma girdi.
 
-Belki rüyamdaki gibi müzik bize birkaç saniyeliğine kanatlar takacak.
+“Gel.”
 
-Belki Doğa haklı çıkacak ve insan dediğimiz o ağır biçim çözülüp geriye başka bir şey kalacak.
+“Kaç oldu?”
 
-Ama artık bunların hiçbirini açıklamaya çalışmak istemiyorum.
+“Daha var.”
 
-Bir şeyi ise açıklayabilirim.
+Bu cümleyi daha önce de söylemişti.
 
-Yıllardır dünyayla aramdaki en eski, en inatçı bağlardan biri sendin, Irmak.
+İçeri girdik.
 
-Buna aşk mı denir, korkaklık mı, alışkanlık mı, yoksa insanın kendi hayatını tek bir imgenin etrafında fazla uzun süre döndürmesi mi, artık bilmiyorum. Belki de en çok bu yüzden sana karşı bu kadar aptalca davrandım. İnsan bazen en değer verdiği şeyi kaybetmemek için öyle çok uğraşıyor ki sonunda onu kendi elleriyle uzağa itiyor.
+Sonrasını düzgün hatırlamıyorum.
 
-Sana söylemiştim Irmak, müzik başka bir şey. Hayır, bunu sana mı söylemiştim, Doğa'ya mı, yoksa sadece kendime mi, artık karıştırıyorum. Doğa seni asla yarı yolda bırakmaz. Müzik demek istedim. Belki ikisini de.
+Yatağın kenarı.
 
-Doğa’ya baktığımda başka bir şey görüyorum.
+Doğa’nın yüzü.
 
-Onu tutamıyorum.
+Bir yerde su içtiğimi sanıyorum.
 
-Belki ilk kez birini tutamayacağımı kabul ediyorum.
+Masadaki kâğıtlar.
 
-Yine de elini bırakmayacağım.
+Doğa’nın bana bir şey söylemesi.
 
-Pencerenin yanından sesi geliyor.
+Belki de eğilip yüzüme çok yakından bakması.
 
-“Fuat?”
+Sonra hiçbir şey.
 
-Başımı kaldırıyorum.
+Uyandığımda sabah olmuştu.
 
-Hazır.
+Gözlerimi açar açmaz tuhaf bir şey fark ettim: başım ağrımıyordu. Ağzım biraz kuruydu, bedenim ağırdı ama zihnim uzun zamandır olmadığı kadar temizdi. Sanki biri gece boyunca kafamın içindeki bütün uğultuyu söküp atmıştı. Birkaç saniye tavana bakıp bu berraklığın keyfini bile çıkarabilirdim.
 
-Yağmur biraz hafiflemiş.
+Sonra Doğa’yı hatırladım.
 
-Gitme vaktimiz geldi.
+Yatakta doğruldum.
 
-Hoşça kal, Irmak.
+“Doğa?”
+
+Cevap yoktu.
+
+Yan yatak boştu.
+
+Bir anda o berraklığın içine panik doldu.
+
+Banyoya koştum.
+
+“Doğa?”
+
+Yoktu.
+
+Balkon kapısını açtım. Yağmur durmuştu. Balkon boştu.
+
+Koridora çıktım. Asansöre kadar yürüdüm. Ne yaptığımı bilmiyordum. Sanki gece fikir değiştirmiş de aşağı kahvaltıya inmiş olabilirdi. Sanki birazdan kapılar açılacak, elinde kahveyle karşıma çıkıp neden böyle baktığımı soracaktı.
+
+“Doğa!” diye seslendim bu kez.
+
+Koridor cevap vermedi.
+
+Odaya geri girdim.
+
+Ellerimi saçlarımın arasından geçirdim. Geceyi hatırlamaya çalıştım. Balkon. Şarap. İkinci kadeh. Doğa’nın sesi. Sonra kesilmiş bir film.
+
+Telefonumu buldum. Saat sabahı çoktan geçmişti. 23.59 üzerinden saatler geçmişti.
+
+İçimde bir şey düştü.
+
+Ganita.
+
+Montumu almak için döndüğümde masanın üzerindeki kâğıdı gördüm.
+
+Benim Irmak’a yazmaya başladığım sayfaların üstüne bırakılmıştı.
+
+Üzerinde yalnızca adım vardı.
+
+Fuat.
+
+Sandalyeye oturdum.
+
+Ellerim o kadar titriyordu ki kâğıdı iki elimle tutmak zorunda kaldım.
+
+Doğa şöyle yazmıştı:
+
+Fuat,
+
+Bunu okuduğunda gitmiş olacağım.
+
+Önce kızacağın şeyi söyleyeyim. Şarabına güçlü bir uyku ilacı koydum. Ne kadar kızarsan kız, bunu değiştirmeyeceğim için şimdiden rahatım.
+
+İstanbul’dan çıkarken bunun böyle biteceğini biliyordum. Ganita’ya benimle gelmek isteyeceğini de biliyordum. Belki ilk anda değil, belki burada, belki son saatte; ama sonunda bana “Ben de geliyorum” diyeceğini biliyordum. Seni tanıyorum artık.
+
+Sana izin vermiş gibi yaptım çünkü başka türlü benimle Trabzon’a gelmene engel olamazdım. Buraya gelmeni istedim de. Son günümde yanımda olmanı istedim. Bunda bencildim.
+
+Ama ölmeni istemedim.
+
+Hayatımda herhangi bir şeyle övünmek bana hep saçma geldi. İnsan kendi yaptığı şeylerin ne kadarını gerçekten kendi yapıyor ki? Genetik konfigürasyon, çevre, tesadüfler, beynin nasıl kurulmuş olduğu... Sonra ortaya çıkan şeye “ben” diyorsun ve onunla gurur duyuyorsun. Bana komik geliyor.
+
+Yine de ille de tek bir şey söylemem gerekirse, hiç kimseye bilerek zarar vermedim. Bunu erdemim olduğu için söylemiyorum. İyi bir insan olmaya karar verdiğim için de değil. Başka türlüsü benden çıkmadı. Yapım buna izin vermedi. Elimden geldiğinde yardım ettim; zarar vermek gerektiğinde geri çekildim. Belki benim tek ahlakım buydu.
+
+Sana hep müzik olduğumu söyledim. Sen bazen bunu şiir gibi dinledin. Ben öyle söylemiyordum. Bir parçayı çalmadan önce kafamda duymak, bir melodinin nereye gideceğini daha gitmeden bilmek, notaların birbirine nasıl değeceğini düşünmeden hissetmek... Bunlar bana hiçbir zaman yetenek gibi gelmedi. Sanki sonradan öğrendiğim şeyler değil de yanlış bir bedene önceden yüklenmiş şeylerdi.
+
+Müzik nasıl kötülük yapabilir, Fuat?
+
+Ben de sana yapamam.
+
+Benim yüzümden ölmen, hayatım boyunca olduğum şeye ters düşerdi. O yüzden seni Ganita’ya götürmeyeceğim.
+
+Dün sana “Elini tutacağım. Bırakmayacağım” dedim.
+
+Sana yalan söylemedim.
+
+Sadece sen başka anladın.
+
+Eğer haklıysam bundan sonra müzik dinlediğin her an elini tutacağım. Bazen beni duyacaksın, bazen duymayacaksın. Belki çok uzun süre hiçbir şey olmayacak. Ama ben orada olacağım.
+
+Bir ricam daha var.
+
+Irmak’a yazdığın mektubu gördüm. Okumadım. Yalnızca kime yazdığını biliyorum ve dün bana yeterince şey anlattın.
+
+Bitir o mektubu.
+
+Bu kez bir şeyin sonucuna sen karar verme. Ona söylemeden onun ne hissedeceğini yazma. İlk defa yalnızca kendi payına düşen gerçeği söyle.
+
+Sonuna da aşağıya yazdığım cümleleri aynen ekle. Bunu benim son isteğim say.
+
+Ve yaşamaya çalış.
+
+D.
+
+Notun altında birkaç satır daha vardı. Doğa’nın Irmak’a aynen aktarmamı istediği cümleler.
+
+Onlara daha bakamadım.
+
+Kâğıdı masaya bıraktım.
+
+Bir süre ne yapacağımı bilmeden oturdum. Ganita’ya koşmak geçti aklımdan. Taksiye atlamak, kayalıklara kadar gitmek, aşağı bakmak. Belki bir iz bulmak. Belki hiçbir şey bulamamak.
+
+Sonra nottaki bir cümle geri geldi:
+
+Eğer haklıysam bundan sonra müzik dinlediğin her an elini tutacağım.
+
+O anda müzik dinlemek dışında yapabileceğim hiçbir şey yokmuş gibi geldi.
+
+Gerçekten hiçbir şey.
+
+Ne Ganita’ya koşmak. Ne polisi aramak. Ne İstanbul’u düşünmek. Ne sana yazmak.
+
+Yalnızca müzik.
+
+Bilgisayarı açtım.
+
+Aradığım parçayı düşünmem gerekmedi.
+
+Julee Cruise — Nightingale.
+
+Yıllar önce Ganita’dan sonra sana gönderdiğim şarkı.
+
+O zaman onu hep aynı yerden dinlemiştim: kayıp, erişemediğim bir kadın, söylenmemiş şeyler, cevap gelmeyen bir mesaj. Benim için yıllarca neredeyse yalnızca hüzünlü bir aşk şarkısı olmuştu.
+
+Oynat düğmesine bastım.
+
+İlk sesler geldi.
+
+Aynı parçaydı.
+
+Ama ben aynı değildim.
+
+Daha ilk dakikada ağlamaya başladım. Doğa’ya ağlıyordum. Gittiği için. Beni kandırdığı için. Beni kurtardığı için. Belki birkaç saat önce kayalara çarpmış bedenini düşündüğüm için. Belki de hiçbir kayaya çarpmadığına, gerçekten yıllardır aradığı yere ulaştığına inanmak istediğim için.
+
+Gözyaşları yüzümden durmadan akıyordu ama garip olan şuydu: müzik beni aşağı çekmiyordu.
+
+İlk kez Nightingale’i dinlerken içimde yalnızca özlem yoktu.
+
+Bir hareket vardı.
+
+Bir ileri atılma isteği.
+
+Sanki şarkı yıllardır beni aynı yerde tutan bir şeyi bu kez gevşetiyor, beni geçmişe doğru değil önümde henüz açılmamış bir yere doğru itiyordu. Aynı melankoli oradaydı; fakat altında daha önce hiç duymadığım bir coşku vardı. Mutluluk değildi tam. Daha çok yaşamanın insanı öne doğru çeken kör kuvveti gibi bir şey.
+
+Sonra sesleri duydum.
+
+Önce bir tane.
+
+Arka tarafta, daha önce yüzlerce kez dinlediğim halde hiç fark etmediğim ince bir titreşim. Bir enstrümanın kuyruk sesi olabilir, kaydın içindeki küçük bir uğultu olabilir, kulaklığın yaptığı bir şey olabilir. Birkaç saniye sonra başka bir yerde yine aynı tuhaflık belirdi. Sonra bir tane daha.
+
+Parçayı durdurdum.
+
+Başa aldım.
+
+Aynı yerlere geldiğimde hepsini yeniden duydum.
+
+Ya da artık duymayı beklediğim için duydum.
+
+Bilmiyorum.
+
+Ama kadın sesi odanın gerisinden yükseldiğinde bir an Doğa’nın sesini duyar gibi oldum.
+
+Julee Cruise değildi sanki.
+
+Doğa’ydı.
+
+Bana bir şey söylemiyordu. Kelime yoktu. Yalnızca sesin dokusunda, uzaktan bana çok tanıdık gelen bir şey vardı.
+
+Sağ elimin üstünde sıcaklık hissettim.
+
+Elimi çekmedim.
+
+Odaya baktım.
+
+Kimse yoktu.
+
+Bunu biliyordum.
+
+Yine de sanki biri elimi tutuyordu.
+
+Hafifçe. Zorlamadan. Sadece orada olduğunu bildirecek kadar.
+
+Doğa’nın notunu düşündüm.
+
+“Elini tutacağım. Bırakmayacağım.”
+
+Ağlamaktan nefesim kesildi.
+
+Ve aynı anda gülmeye başladım.
+
+Bu ikisinin bir bedende aynı anda yapılabileceğini bilmiyordum.
+
+Belki beynim bütün bunları uyduruyordu. Güçlü bir uyku ilacından yeni uyanmıştım. En yakın arkadaşımı birkaç saat önce kaybetmiş olabilirdim. Zihnin böyle bir anda seslere, dokunuşlara, anlamlara neler ekleyebileceğini bilmiyorum.
+
+Ama o anda başka bir açıklama istemedim.
+
+Doğa başarmıştı.
+
+Buna inandım.
+
+Müziğin içindeydi.
+
+Üstelik yalnızca içinde durmuyordu. Sanki ona dokunmuştu. Yıllardır bildiğim bir parçanın içinde bana daha önce göstermediği küçük kapılar açmıştı. Doğa’nın gerçekten müzik olduğunu söylemesinin anlamı belki buydu: artık müziğin yalnızca bir parçası değil, ona karışan, onu azıcık değiştirebilen bir şey olmak.
+
+Bunun doğru olduğunu kanıtlayamam.
+
+Belki hiçbir zaman istemeyeceğim de.
+
+Parça bittiğinde hâlâ ağlıyordum ama ilk kez Nightingale beni mutsuz bırakmadı.
+
+İçimde coşkulu, neredeyse çocukça bir güç vardı.
+
+Ayağa kalktım.
+
+Bir bardak su içtim.
+
+Sonra Irmak’a yazdığım sayfaları önüme çektim.
+
+Mektubun başından beri sana kendimi anlatıyordum ama bazı yerlerde hâlâ saklanıyordum. Doğa’nın notundaki tek cümle gelip oraya saplandı:
+
+İlk defa yalnızca kendi payına düşen gerçeği söyle.
+
+Melih’in o tahta terasta yaptığı şeyi düşündüm. Sonucun ne olacağını bilmiyordu. Şartlar bile onun aleyhineydi. Ama kendi cümlesini söylemiş, geri kalanını Diren’e bırakmıştı.
+
+Ben ise yıllarca senin cümleni de kendim yazmıştım.
+
+O halde söyleyeyim.
+
+Babam bizi ben çok küçükken terk etti, Irmak. Onun yüzünü doğru dürüst hatırlamıyorum bile. Bazı eski fotoğraflardan tanıyorum; zihnimdeki yüzün ne kadarı anı, ne kadarı fotoğraf bilmiyorum. Annem kaldı. Bir süre yalnızca o vardı.
+
+Sonra annem öldü.
+
+Ben dokuz ya da on yaşındaydım. Hastalığından. Bazen onun babamın gidişinden sonra gerçekten çöktüğünü düşünüyorum. Belki de bunu dramatize ediyorum; insan çocukken anlayamadığı ölümlere yıllar sonra anlam uyduruyor. Bildiğim tek şey, bir sabah annem vardı ve sonra yoktu.
+
+Beni küçük teyzem aldı.
+
+Kendisi daha yüksek lisans yapıyordu. Hayatı tam kurulmamıştı; buna rağmen beni yanına aldı. Büyük teyzem almadı. Bunu yıllarca içimde ayrı bir dosyada tuttum. Küçük teyzem ise elinden geldiğince annem olmaya çalıştı sanırım. Sonra doktorası için Avrupa’ya gitme fırsatı çıktı. Beni yanında götüremedi.
+
+Bir insanın hayatından ikinci kez çıkarılmak için on iki, on üç yaş çok uygun bir yaş değilmiş.
+
+Sonra bir devlet okulunun yatılı bölümüne yerleştirildim. Başkalarının programına göre uyanmak, başkalarının ışığı kapattığı saatte uyumak, aynı odada bir sürü insanla yaşarken yine de kimseye ait olmamak... İnsan yalnızlığa bazen tek başına kalarak değil, sürekli başkalarının arasında yaşayarak alışıyor.
+
+Üniversitede seni ve Cem’i tanıdığımda bu yüzden ikinizin benim için ne olduğunu siz hiç anlamadınız belki. Uzun zaman sonra gerçekten arkadaşım diyebildiğim tek iki insan sizdiniz.
+
+Ama arkadaş da değildiniz yalnızca.
+
+Benim ilk küçük memleketim oldunuz.
+
+Sonra birbirinizi sevdiniz.
+
+Bunda yanlış hiçbir şey yoktu. Hâlâ yok. Ama iki kişinin birbirine doğru yaklaşması bazen üçüncü kişiyi farkında olmadan dışarı itiyor. Siz bana kötü davranmadınız. Beni kovmadınız. Yalnızca birbiriniz için merkez oldunuz ve ben yeniden çevrede kaldım.
+
+Belki sana kızdığım zamanların çoğunda aslında buna kızıyordum. Seni kaybetmeden önce bile kaybedilmiş hissetmeye.
+
+Ve sen vardın.
+
+Seni sevdiğimi o zaman da biliyordum. Yıllar geçtikçe bunun geçici bir şey olmadığını da anladım. Ama bu gerçeği sana söylemek yerine kendi içimde taşıdım; hatta çoğu zaman senden bile saklamaya çalıştım.
+
+Bunu senden bir şey istemek için anlatmıyorum. “Ne yapabilirdim ki?” diyebilirsin. “Ben seni seçmedim” diyebilirsin. Haklısın. Senin hayatın benim içimde kurduğum hikâyeye borçlu değildi. Cem’i sevdin. Onunla bir hayat kurdun. Bir çocuğunuz oldu. Bunların hiçbiri bana yapılmış bir şey değildi.
+
+Benim hatam başka yerdeydi.
+
+Sana kendi gerçeğimi söylemeden senin cevabını da ben verdim. Sonra yıllarca o cevabın içinde yaşadım.
+
+Bunu artık yapmak istemiyorum.
+
+Bundan sonra sevdiğim ve sevmediğim şeylerin yalnızca başıma gelmesini seyretmek istemiyorum. Onlara karışmak istiyorum. Hayatıma etki etmek istiyorum. Sonucu kontrol etmek değil; kendi payıma düşen hareketi yapmak.
+
+Doğa gittiği için hâlâ parçalanmış durumdayım. Bunu yazarken bile gözlerim yeniden doluyor. Bir yanım hâlâ Ganita’ya koşmak, onu aramak, olan şeyi geri almak istiyor.
+
+Ama başka bir yanım onun gerçekten başardığına inanıyor.
+
+Az önce Nightingale’i dinlerken buna inandım.
+
+Belki ilk kez müzik bana bir kaybın mezarı gibi değil, önümde açılan bir şey gibi geldi.
+
+Şimdi Doğa’nın notunun altında bana bıraktığı son satırlara bakıyorum.
+
+Senden bunları aynen yazmamı istedi.
+
+O halde, tek kelimesini değiştirmeden yazıyorum:
+
+Irmak, hayatım boyunca seni sevdim. Başka hiçbir kadını seni sevdiğim gibi sevemedim. Bunu senden bir karşılık istemek için söylemiyorum. Senin ne hissettiğine sen karar vereceksin; artık senin yerine ben karar vermeyeceğim. Ben yalnızca ilk kez kendi payıma düşen gerçeği söylüyorum.
+
+IRMAK, BUNDAN SONRA MÜZİK DİNLEDİĞİNDE BAMBAŞKA DİNLEYECEKSİN.
+
+Doğa son cümleyi kendi notunda da büyük harflerle yazmıştı.
+
+Bunu artık yalnızca bir teselli cümlesi gibi okuyamıyorum.
+
+Doğa gerçekten müzik olduysa, yalnız benim dinlediğim şeylerin içinde sessizce duracağını düşünmüyordu. Müdahil olacağını düşünüyordu. Seslere dokunabileceğini. Belki bir melodinin içinde daha önce olmayan küçücük bir kıvrım yaratabileceğini. Belki yıllardır bildiğimiz bir şarkıyı bir gün bize başka türlü duyurabileceğini.
+
+Ya da Doğa öyle sanıyordu.
+
+Belki şimdi ben de öyle sanıyorum.
+
+Sana yıllar önce gönderdiğim ve senin hiç cevap vermediğin Nightingale’i bir kez daha göndereceğim.
+
+Ama bu kez onu sana gönderirken yıllar önceki adam değilim.
+
+O zaman mesajı gönderdikten sonra telefonun başında beklemiştim. Cevabın gelip gelmeyeceğini kendi değerimin ölçüsüne çevirmiştim. Sessizliğini bir hüküm gibi okumuştum.
+
+Bu kez cevap vermemen bile ilk kez beni korkutmuyor.
+
+Çünkü sana bu şarkıyı göndermek benim eylemim.
+
+Onu dinleyip dinlememek, cevap verip vermemek, ne hissedeceğin senin hayatın.
+
+İnsan hayatını sonunda tek başına yaşıyor, Irmak. Bunun yalnızlık anlamına gelmesi gerekmiyor. Belki yalnızca kendi payına düşen hayatı başkasının cevabına teslim etmemek anlamına geliyor.
+
+Benim hayatımda artık bu var.
+
+Müzik var.
+
+Doğa da, eğer haklıysa, onun içinde bir yerde var.
+
+Ve ilk kez bu bana yalnızca hüzün vermiyor.
+
+Nightingale’i sana yeniden göndereceğim.
+
+Bu kez coşkuyla.
+
+Belki benim bu sabah duyduğum o küçük sesleri sen de duyarsın.
+
+Belki duymazsın.
+
+Belki arka taraftaki o sesi bir anlığına Doğa’nın sesi sanırsın.
+
+Belki hiçbir şey olmaz.
+
+Bununla ne yapacağını bilmiyorum.
+
+Bu kez bilmeye çalışmayacağım.
+
+Bir gün, belki çok sonra, Ganita’da karşı karşıya oturabileceğimize inanmak istiyorum. Cem’in gölgesinde değil. Doğa’nın gölgesinde değil. Geçmişte kaybettiğimiz insanların, kaçırdığımız ihtimallerin, kendi kendimize yazdığımız hikâyelerin gölgesinde değil.
+
+Yalnızca sen ve ben.
+
+Karadeniz önümüzde çalkalanırken.
+
+Belki hiçbir şey değişmez.
+
+Belki her şey değişir.
+
+Kim bilir, belki önümüzde bambaşka bir hayat vardır.
+
+İlk kez sonunu bilmiyorum.
+
+Ve ilk kez, sonunu öğrenmek istiyorum.
