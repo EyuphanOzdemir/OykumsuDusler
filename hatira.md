@@ -492,7 +492,9 @@ Sonra salonun zemininde oturuyorum. Doğa dört, belki beş yaşında. Türkiye�
 
 “Bak Doğa, sana üç müzik dinleteceğim. İsimlerini de söyleyeceğim. Sonra tekrar çalınca hangisinin hangisi olduğunu bulacaksın. Bir de en çok hangisini sevdiğini söyleyeceksin.”
 
-Müzik dinlemek isteyen ama Diren yemeği hazırlayana kadar yeğeniyle de ilgilenmesi gereken bir dayının bulduğu akıllıca bir çözümdü. İlk iki parçayı çaldım. Doğa ikisine de kayıtsız kaldı; ne isimlerine dikkat kesildi ne de sevip sevmediğini söyledi. Zaten genellikle tepkisiz, neredeyse hiç konuşmayan, insanın ne düşündüğünü yüzünden anlayamadığı tuhaf bir çocuktu. Bu yüzden küçücük yaşında doktor doktor gezdirilmişti.
+Müzik dinlemek isteyen ama Diren yemeği hazırlayana kadar yeğeniyle de ilgilenmesi gereken bir dayının bulduğu akıllıca bir çözümdü. Müge, Doğa’nın seslerle ilgili tuhaflıklarından daha önce birkaç kez söz etmişti. Üç-dört yaşındayken piyanoda bastığı tek tek notaları başka odadan bulabildiğini, hatta elektrik süpürgesinin ya da buzdolabının uğultusunda bizim tek bir gürültü olarak duyduğumuz şeylerin içinde birkaç ayrı sesi birbirinden ayırıp tarif ettiğini anlatıyordu. Ben bunları biraz abartılmış anne hikâyeleri sanıyordum.
+
+İlk iki parçayı çaldım. Doğa ikisine de kayıtsız kaldı; ne isimlerine dikkat kesildi ne de sevip sevmediğini söyledi. Zaten genellikle tepkisiz, neredeyse hiç konuşmayan, insanın ne düşündüğünü yüzünden anlayamadığı tuhaf bir çocuktu. Bu yüzden küçücük yaşında doktor doktor gezdirilmişti.
 
 Sonra Bach’ın Aziz Matthew Pasyonunun final bölümünü açtım.
 
