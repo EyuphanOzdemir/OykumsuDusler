@@ -87,6 +87,7 @@ Doğa:
 - Doğa'nın yanında taşıdığı Orakei Basin fotoğrafında Melih ve Diren vardır; fotoğrafı Müge çekmiştir.
 - Müge fotoğrafı ölmeden birkaç gün önce Doğa'ya verir.
 - Kronoloji: önce Melih, sonra Diren, sonra Müge ölür.
+- `MÜZİĞİN KANATLARI` finalinde bu fotoğraf Doğa'nın ölümünden sonra polis tarafından Fuat'a verilir. Fotoğrafın arkasındaki kısa mesajda Melih'in “Doğum ne kadar saçmaysa ölüm de o kadar saçma” sözü geri döner; bu Doğa'nın yeni icat ettiği bir aforizma gibi yazılmamalıdır.
 - Otel balkonu sahnesinde Doğa'nın yanında genç bir adam vardır: Fuat.
 - Fuat bu sahnede solgun, uykusuz ve psikolojik olarak dağılmış görünür; Doğa'nın anlattıklarını aceleci ve kesik bir yorumla kendi anlamına çekmeye çalışır, Doğa onu hemen durdurur.
 - Şiddetli yağmur vardır.

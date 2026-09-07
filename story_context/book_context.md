@@ -22,7 +22,7 @@ Temel sorunlardan biri şudur:
 Kozmik/anlamsal bir düzen bulunmasa bile sevgi, şefkat, koruma, hatırlama ve özellikle hikâyeler yerel ve insan-yapımı anlamlar üretebilir. Bir hayatın kendisi anlamsız olabilirken onun hikâyesi anlamlı olabilir.
 
 ### MÜZİĞİN KANATLARI
-Doğa için çözüm, insan yaşamının içinde anlam üretmekten çok insan formunun dışına çıkma arzusudur. Müzik yalnızca teselli değildir; başka bir varoluş biçimine geçiş ihtimali olarak görülür. Fuat için ise asıl sorun giderek Doğa'yı tutmak ile onun olmak istediği şeye dönüşmesine izin vermek arasındaki çatışmaya dönüşür.
+Doğa için çözüm, insan yaşamının içinde anlam üretmekten çok insan formunun dışına çıkma arzusudur. Müzik yalnızca teselli değildir; başka bir varoluş biçimine geçiş ihtimali olarak görülür. Fuat için ise asıl sorun giderek Doğa'yı tutmak ile onun olmak istediği şeye dönüşmesine izin vermek arasındaki çatışmaya dönüşür. Yeni finalde Doğa'nın bedensel ölümü inkâr edilmez; açık kalan soru, Doğa dediğimiz şeyin bedenden ibaret olup olmadığıdır. Fuat'ın umudu kesin bir metafizik kanıttan değil, şefkatten, güvenli bağ kurmaktan ve yalnız direnmek zorunda olmadığını anlamasından doğar.
 
 ### KUSURSUZ
 Systemisler anlamsızlık sorununa pratik/eylemsel bir yanıt verirler:
@@ -41,7 +41,7 @@ Bunu metinde açıklayan bir şemaya dönüştürme. Bu yalnızca editoryal pusu
 
 ### Ölümden sonra devam etme
 - `HATIRA`: İnsan başkalarının hatıralarında yeniden yaşar.
-- `MÜZİĞİN KANATLARI`: İnsan melodileşerek başka bir forma geçebilir mi?
+- `MÜZİĞİN KANATLARI`: İnsan melodileşerek başka bir forma geçebilir mi; beden öldükten sonra sevilen kişinin izi müziğin, yasın ve şefkatin içinde hâlâ duyulabilir mi?
 - `KUSURSUZ`: Ölüm biyolojik/teknik bir sorun olarak yenilebilir mi; birey daha büyük sistemin parçası olarak devam edebilir mi?
 
 ### Birey ve daha büyük bütün
@@ -51,7 +51,7 @@ Bunu metinde açıklayan bir şemaya dönüştürme. Bu yalnızca editoryal pusu
 
 ### Sanat
 - `HATIRA`: Hikâye, yaşamda bulunmayan anlamı kurabilir.
-- `MÜZİĞİN KANATLARI`: Müzik neredeyse ontolojik bir çıkış kapısıdır.
+- `MÜZİĞİN KANATLARI`: Müzik neredeyse ontolojik bir çıkış kapısıdır; fakat finalde Fuat için tek başına kurtarıcı değildir. Müzik, Doğa'nın şefkatini ve Fuat'ın başka insanlarla bağ kurma ihtimalini duyulur kılan eşik işlevi görür.
 - `KUSURSUZ`: Bülent'in kod, şiir, müzik ve kusursuz yapı tutkusu insan dünyasından kaçış ve daha amaçlı bir düzene özlem taşır.
 
 ### “Kanat” / uçurum / çıkış motifi
