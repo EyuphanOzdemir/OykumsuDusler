@@ -27,7 +27,7 @@ Geriye dönüp baktığımda, beni buraya kadar getiren sürecin tam o anda baş
 
 “Nasil yani?”
 
-Bu kez yüzünü tam bana çevirdi. Sorularimdan bezmis gibi biraz bikkin ya da yorgun bir sekilde yanitladi.
+Sorularimdan bezmis gibi biraz bikkin ya da yorgun bir sekilde yanitladi.
 
  “Beni yükseltmesi”
 
@@ -159,7 +159,7 @@ Doğa’yla konuşmanın kendine özgü bir sınırı vardı. Müzik hakkında s
 
 “Sadece müzikten bahsetmemizi istiyorsun. Neden? Neden mesela seninle ilgili kişisel bir şey öğrenemiyorum? Ya sen? Hiç mi merak etmiyorsun beni, bir insan olarak?”
 
-Doğa sustu.
+Doğa ezberden konusuyormus gibi aninda yanitladi.
 
 “Çünkü müzik dışındaki konuların benim için pek bir önemi yok.”
 
@@ -167,7 +167,7 @@ Biraz yaklaşıp yüzüne baktım.
 
 “Ama neden?”
 
-Doğa gözlerini benden kaçırdı.
+Gözlerini benden kaçırdı.
 
 “Çünkü müzik benim tek kurtuluşum.”
 
@@ -191,21 +191,17 @@ Ama ben yine de biraz içerliyordum. Nasıl olur da bunu sevmezdi? Boyle anlarda
 
 Sıra yeniden bana gelmisti. Calan parçayı seviyordum. Değiştirmem için hiçbir neden yoktu. Ama birkaç dakikadır aklımda başka bir şarkı vardı ve Doğa’nın onu bir an once dinlemesini istiyordum, Mono’nun "Life in Mono" parcasini.
 
-Bu parcayi ilk kez yıllar önce Dickens’ın "Büyük Umutlar"ından uyarlanan aynı adlı filmin müziği olarak tanımıştım. Film zamanla zihnimde silindi; roman, daha doğrusu Pip ile Estella ise kaldı.
+Bu parcayi ilk kez yıllar önce Dickens’ın "Büyük Umutlar"ından uyarlanan aynı adlı filmin müziği olarak tanımıştım. Film zamanla zihnimde silindi; roman, daha doğrusu Pip ile Estella ise kaldı. Pip’in Estella’ya duyduğu o ümitsiz bağlılıkta beni her zaman rahatsız eden bir şey olmuştu. Estella uzak bir hayal değildi. Pip onu görüyor, onunla konuşuyor, hayatının içine tekrar tekrar giriyordu. Ama Estella hiçbir zaman Pip'in istedigi kadar yakinlasmiyordu. Belki de ulaşılmazlığın en kötü biçimi buydu: Bir insanın hep uzakta kalmasi değil, ne kadar yaklasirsa yaklassin araya asilamaz gibi gorunen bir mesafe koymasi.
 
-Pip’in Estella’ya duyduğu o ümitsiz bağlılıkta beni her zaman rahatsız eden bir şey olmuştu. Estella uzak bir hayal değildi. Pip onu görüyor, onunla konuşuyor, hayatının içine tekrar tekrar giriyordu. Ama Estella hiçbir zaman Pip'in istedigi kadar yakinlasmiyordu. Belki de ulaşılmazlığın en kötü biçimi buydu: Bir insanın hep uzakta kalmasi değil, ne kadar yaklasirsa yaklassin araya asilamaz gibi gorunen bir mesafe koymasi.
-
-Doğa’yı düşündüm: İlk gece beni bırakıp salona dönen kadın artık bana yazıyor, beni konserlere çağırıyordu; eskiden yalnız yaptığı bazı şeylerde artık ben vardım. Yaklaşıyordu. Ben de onun için herhangi biri değildim artık. Ama birkaç metre ötede otururken bile çocukluğu, ailesi, geçmişi bana kapalıydı; aramızdaki mesafe azaldıkça ona başka türlü yaklaşma isteğim büyüyor, ulaşamayacağım yeri daha belirgin görüyordum.
+Doğa’yı düşündüm: İlk gece beni bırakıp salona dönen kadın artık bana yazıyor, beni konserlere çağırıyordu; eskiden yalnız yaptığı bazı şeylerde artık ben vardım. Yaklaşıyordu. Ben de onun için herhangi biri değildim artık. Ama birkaç metre ötede otururken bile çocukluğu, ailesi, geçmişi bana kapalıydı. Onunla daha fazla gorustukce ulaşamayacağım yeri daha belirgin görüyordum ve bu ona başka türlü yaklaşma isteğimi büyütuyordu.
 
 Doga Estella değildi elbette. Ben de kara sevdanin pencesindeki Pip degildim. Beni kendisine bağlamaya çalışmıyor, vermeyeceği bir şeyi vaat etmiyordu. Sınırını başından beri dürüstçe koymuştu: "Sadece müzik konusalim lütfen"! Yine de büyük umutlarım vardi ona iliskin. Onun bana vermedigi, benim israrla vazgecemedigim umutsuz cabalar...
 
 Life in Mono'nun ilk sesleri odaya yayıldığında salonun havası değişti. Müzik tek bir yerden gelmiyor gibiydi; odanın farklı köşelerinde ayrı ayrı oluşuyor, ince tabakalar halinde birbirinin üzerine biniyordu. Bir ses sağımızda beliriyor, bir başkası birkaç saniye sonra arkamızdan yükseliyor, sonra ikisi görünmez küçük patlamalarla birbirine karışıyordu. Yaylıların hüznü elektronik dokuların arasına yayılıyor, harpsikordun soğuk ve kırılgan sesi aralarından ince ince geçiyordu. Alttaki ağır ritim parçayı ileri taşımaktan çok aynı duygunun içinde tutuyor; bütün oda puslu, soğuk ve melankolik bir renge bürünüyordu.
 
-Doğa’ya bakmamaya çalıştım. Yine de göz ucuyla onu izliyordum. 
-İlk dakikada kıpırdamadı. İkinci dakikada da. Parçayı değiştirmek için kalkmadı. Derin bir nefes aldığımı fark ettim. 
-Biliyordum. Seveceğini biliyordum!
+Doğa’ya bakmamaya çalıştım. Yine de göz ucuyla onu izliyordum. İlk dakikada kıpırdamadı. İkinci dakikada da.  Derin bir nefes aldığımı fark ettim. Parçayı değiştirmek için kalkmadı. Biliyordum! Seveceğini biliyordum!
 
-Üstelik bu tür müzikler onun favorisi olmaktan cok uzakti. Ama bu kez muzik türünun hiçbir önemi kalmamış gibiydi. Doğa koltuğa yaslanmış, gözlerini kapatmıştı. Yüzündeki o sürekli dikkat, o müziği çözmeye çalışan ifade yavaş yavaş kayboldu. Bir noktadan sonra dinlemiyor da müziğin içinde bir yerde yasiyormus gibiydi.
+Üstelik bu tür müzikler onun favorisi olmaktan cok uzakti. Doğa koltuğa yaslanmış, gözlerini kapatmıştı. Yüzündeki o sürekli dikkat, o müziği çözmeye çalışan ifade yavaş yavaş kayboldu. Bir noktadan sonra dinlemiyor da müziğin içinde bir yerde yasiyormus gibiydi.
 
 Parça bittiğinde bu vecd hali surdu; gozleri hala kapali, bedeni sanki baska bir yerde, kipirtisiz... Dayanamayip seslendim:
 
@@ -243,29 +239,21 @@ Sesindeki aceleci ve kesin ton, kisisel konularin konusulmasi ile ilgili sinira 
 
 Doğa’yı daha sonra da müziğin içinde böyle kaybolurken çok gördüm. Gündelik hayatta insanlara ve konuşmalara ancak mecbur kaldığı kadar katılıyor gibiydi. Müzik başladığındaysa kaçacak bir sığınak bulmuş gibi rahatlamıyor; sanki yavaş yavaş seslerin içine karışıyordu.
 
-Bir gece yine Doğa’nın evindeydik. Samuel Barber’ın "Yaylılar İçin Adagio" adlı eserini dinliyorduk.
+∞
 
-Parça başladığından beri neredeyse hiç konuşmamıştık. Doğa koltuğa iyice gömülmüş, başını arkaya yaslamıştı. Gözleri kapalıydı. Müziğin ağır ağır yükseldiği yerlerde nefesi de değişiyor, bazen uzun süre hiç kıpırdamadan kalıyor, sonra yüzünde belli belirsiz bir kasılma beliriyordu. Onu daha önce de müziğin içinde kaybolurken görmüştüm; ama bu kez başka bir şey vardı.
+Bir gece yine Doğa’nın evindeydik. Samuel Barber’ın "Yaylılar İçin Adagio" adlı eserini dinliyorduk. Parça başladığından beri neredeyse hiç konuşmamıştık. Doğa koltuğa iyice gömülmüş, başını arkaya yaslamıştı. Gözleri kapalıydı. Müziğin ağır ağır yükseldiği yerlerde nefesi de değişiyor, bazen uzun süre hiç kıpırdamadan kalıyor, sonra yüzünde belli belirsiz bir kasılma beliriyordu. Onu daha önce de müziğin içinde kaybolurken görmüştüm; ama bu kez başka bir şey vardı.
 
-Yüzünü dikkatlice izledim. Doğa’yı o güne kadar pek çok şey olarak düşünmüştüm. Hayranlık uyandıran bir tuhaflık, akıllı bir kaçık, dünyayla arasında benim anlayamadığım özel bir anlaşmazlık bulunan biri... Hatta bazen onu bir insandan çok, karşıma çıkmış olağanüstü bir olay gibi gördüğümü şimdi fark ediyorum.
+Yüzünü dikkatlice izledim. Doğa’yı o güne kadar pek çok şey olarak düşünmüştüm. Hayranlık uyandıran bir tuhaflık, akıllı bir kaçık, dünyayla arasında benim anlayamadığım özel bir anlaşmazlık bulunan biri... Hatta baslarda onu bir insandan çok, karşıma çıkmış olağanüstü bir olay gibi gördüğümü şimdi fark ediyorum.
 
-Ama o gece, belki müziğin de etkisiyle, ilk kez Doğa bana trajik bir insan gibi göründü.
+Ama o gece, belki müziğin de etkisiyle, ilk kez Doğa bana trajik bir insan gibi göründü. Yüzünde belirgin bir acı yoktu. Ağlamıyordu. Kaşlarını çatmıyor, geçmişte olmuş bir şeyi hatırladığını belli eden hiçbir hareket yapmıyordu. Yine de o kapalı gözlerin ardında ağır yükler taşımış bir hayat varmış gibi geldi bana.
 
-Yüzünde belirgin bir acı yoktu. Ağlamıyordu. Kaşlarını çatmıyor, geçmişte olmuş bir şeyi hatırladığını belli eden hiçbir hareket yapmıyordu. Yine de o kapalı gözlerin ardında ağır yükler taşımış bir hayat varmış gibi geldi bana.
-
-Doğa hep böyle miydi?
-
-Çocukken de insanlardan bu kadar uzakta mı dururdu?
-
-Nasıl bir çocukluğu olmuştu? Annesi nasıldı? Babası? Birbirlerine yakın mıydılar? Evlerinde müzik var mıydı? Onu ilk kim yalnız bırakmıştı? Kimleri sevmişti? Kimleri kaybetmişti?
+Doğa hep böyle miydi? Çocukken de insanlardan bu kadar uzakta mı dururdu? Nasıl bir çocukluğu olmuştu? Annesi nasıldı? Babası? Birbirlerine yakın mıydılar? Evlerinde müzik var mıydı? Onu ilk kim yalnız bırakmıştı? Kimleri sevmişti? Kimleri kaybetmişti?
 
 Büyük bir felaket yaşamamış da olabilirdi; bütün bunları yalnızca onun doğası da açıklayabilirdi. İnsan bazen başına tek bir korkunç şey gelmeden de dünyaya karşı böyle bir yabancılık geliştirebilirdi.
 
-Bilmiyordum; en tuhafı da buydu.
+Bilmiyordum; en tuhafı da buydu. Hayatımın artık bu kadar büyük bir bölümünü kaplayan insanın hayatının benden önceki kısmı tamamen karanlıktı. Onun hikâyesini dinlemeyi o kadar çok isterdim ki! Ama bu mümkün değildi. 
 
-Hayatımın artık bu kadar büyük bir bölümünü kaplayan insanın hayatının benden önceki kısmı tamamen karanlıktı.
-
-Onun hikâyesini dinlemeyi o kadar çok isterdim ki! Ama bu mümkün değildi. Zihnim aynı anda onlarca soru soruyor, dile gelmek için çırpınıyordu adeta. Ben yine de susmayı becerdim; yalnızca gözleri kapalı, kanlı canlı, hüzünlü bu insanı izledim.
+O anda zihnim aynı anda onlarca soru soruyor, dile gelmek için çırpınıyordu adeta. Ben yine de susmayı becerdim; yalnızca gözleri kapalı, hüzünlü bu insanı izledim.
 
 Parça yükseldi. Doğa’nın yüzündeki o belirsiz ağırlık bir an daha belirginleşti; sonra müzik yavaş yavaş geri çekilmeye başladı. Son sesler de kaybolduğunda odada uzun bir sessizlik kaldı.
 
@@ -275,9 +263,7 @@ Bir süre sonra gözlerini açtı. Az önce yüzüne çökmüş o ağır ifade h
 
 “Nereye?”
 
-Benim sesimdeyse şaşkınlıktan çok sıradan bir merak vardı. Hâlâ bir yerden söz ettiğini sanıyordum.
-
-Doğa başını hafifçe iki yana salladı.
+Benim sesimdeyse şaşkınlıktan çok sıradan bir merak vardı. Doğa başını hafifçe iki yana salladı.
 
 “Bir yere değil.”
 
@@ -287,33 +273,19 @@ Az önce “Benim kesin gitmem lazım” diyen kadınla, şimdi karşımdaki o n
 
 “Bir yere değil” derken ne demek istediğini, neden gitmesi gerektiğini, nereye varmayı umduğunu...
 
-Ama müzik yeniden başlamıştı.
+Müzik yeniden başlamıştı. Doğa kendi içine kıvrılmış halde kıpırdamadan yatıyordu. Bunun konuşmanın bittiği anlamına geldiğini artık biliyordum. Ben de sustum. O gece daha fazlasını söylemedi. Şimdi ise biliyorum: Bana ne yapmak istediğini ilk kez o zaman söylemişti. Ben yalnızca o sözün gerçek anlamını henüz bilmiyordum.
 
-Doğa o şekilde, kendi içine kıvrılmış halde kıpırdamadan yatıyordu.
+Onunla tanışalı yaklaşık bir yıl oldu. Geriye baktığımda o bir yılın beni bugün bulunduğum noktaya nasıl adım adım getirdiğini daha iyi görüyorum. Yolun asıl yönünü başından beri Doğa belirliyordu; ben bunu ancak çok geç anlayabildim. Bunun nasıl olduğunu anlatabilmem için önce Doğa’nın “burada kalmamak” derken neyi kastettiğini anlatmam gerekiyor.
 
-Bunun konuşmanın bittiği anlamına geldiğini artık biliyordum.
-
-Ben de sustum.
-
-O gece daha fazlasını söylemedi.
-
-Şimdi biliyorum: Bana ne yapmak istediğini ilk kez o zaman söylemişti. Ben yalnızca o sözün gerçek anlamını henüz bilmiyordum.
-
-Onunla tanışalı yaklaşık bir yıl oldu. Geriye baktığımda o bir yılın beni bugün bulunduğum noktaya nasıl adım adım getirdiğini daha iyi görüyorum. Yolun asıl yönünü başından beri Doğa belirliyordu; ben bunu ancak çok geç anlayabildim.
-
-Bunun nasıl olduğunu anlatabilmem için önce Doğa’nın “burada kalmamak” derken neyi kastettiğini anlatmam gerekiyor.
+∞
 
 Onun kendi cümlesiyle başlayayım:
 
 “Müzikle tanıştığımdan beri hayatım, onunla özdeşleşme yolundan başka bir şey olmadı. Yolun sonuna geldiğimde beni bu dünyada tutan saçma hata ortadan kalkacak ve bir melodiye dönüşeceğim.”
 
-∞
-
 Kulağa çılgınca geliyor. Bana da gelmişti. Ama Doğa bunu bir benzetme olarak söylemiyordu. Bir melodi gibi yaşamak, müzikte kendini bulmak ya da öldükten sonra geride bir beste bırakmak gibi şiirsel bir şeyden söz etmiyordu.
 
-Gerçekten bir melodiye dönüşeceğine inanıyordu.
-
-Zaten “inanmak” sözcüğünü kullandığımda itiraz etmişti.
+Gerçekten bir melodiye dönüşeceğine inanıyordu. Zaten “inanmak” sözcüğünü kullandığımda itiraz etmişti.
 
 “İnanmıyorum” dedi. “Mümkün olduğunu düşünüyorum.”
 
@@ -323,9 +295,7 @@ Beni kaygılandıran sözcük seçimi değildi. Doğa’nın bunu bir benzetme d
 
 “Senin rahatlaman, bir şeyin mümkün olup olmadığının ölçütü değil.”
 
-Sonra önümde duran kâğıdı çekip arkasına birkaç çizgi çizdi.
-
-Sicim Kuramı’ndan söz etmeye böyle başladı. Maddenin en temel düzeyinde farklı biçimlerde titreşen sicimler düşünülebileceğini anlattı; Doğa’nın aklını asıl ele geçiren de bu titreşim fikriydi.
+Sonra kagit kalem cikarip kagida birkaç çizgi çizdi. Sicim Kuramı’ndan söz etmeye böyle başladı. Maddenin en temel düzeyinde farklı biçimlerde titreşen sicimler düşünülebileceğini anlattı; Doğa’nın aklını asıl ele geçiren de bu titreşim fikriydi.
 
 “Farklı titreşim, farklı parçacık” dedi. “Farklı parçacık, farklı madde. Sen, ben, bu masa...”
 
@@ -379,11 +349,11 @@ Bir melodi.
 
 “Her şeyi açıklayabildiğimi söylemedim.”
 
-Neyi okuduğu bilim yazılarından aldığını, neyi kendisinin eklediğini sordukça sabırsızlanıyordu.
+Neyi okuduğu bilim yazılarından aldığını, neyi kendisinin eklediğini sordukça biraz sinirleniyordu.
 
 “Onu ben ekliyorum tabii.”
 
-Bu cevap ona güvenimi artırıyordu. En azından kendi fikrini bilimin içine saklayıp bana bilim diye sunmaya çalışmıyordu.
+Bu tur gercekci, durust yanitlari ona güvenimi artırıyordu. En azından kendi fikrini bilimin içine saklayıp bana bilim diye sunmaya çalışmıyordu.
 
 “Peki bütün bunların mümkün olduğundan hiç mi şüphe etmiyorsun?” dedim.
 
@@ -397,11 +367,11 @@ Bu cevap ona güvenimi artırıyordu. En azından kendi fikrini bilimin içine s
 
 “Bazen bir şeyden öyle eminsindir ki ondan şüphe etmek apaçık saçma görünür. Benim için bu da öyle.”
 
-Sonunda onu ikna etmeye ya da çürütmeye çalışmayı bıraktım. Kuramına inanmıyordum; ama müziğin beden ve benlik sınırlarını birkaç dakikalığına gevşeten etkisine yabancı değildim. Doğa, benim de tanıdığım o hissi akıl almaz bir sonuca kadar götürüyordu.
+Sonunda onu ikna etmeye ya da çürütmeye çalışmayı bıraktım. Fikrine inanmıyordum; ama müziğin beden ve benlik sınırlarını birkaç dakikalığına gevşeten etkisine yabancı değildim. Doğa, benim de tanıdığım o hissi akıl almaz bir sonuca kadar götürüyordu.
 
-Sonra bana bulgularını gösterdi.
+Sonra bana "bulgularını" gösterdi.
 
-İlk gece bilgisayarının başında neredeyse dört saat geçirdik. Eski gazete arşivleri, kayıp ilanları, kamuya açık soruşturma haberleri, ailelerin verdiği röportajlar, yıllar önce kapanmış forum ve blog sayfalarının arşivlenmiş kopyaları... Doğa bunları yıllara ve ülkelere göre ayırmıştı. Bazı dosyalar birkaç satırdan ibaretti. Bazılarında son görülen saat, geride bırakılan eşyalar, evde açık kalmış bir müzikçalar gibi küçük ayrıntılar vardı. Ama bilgiler her zaman birbirini tutmuyordu: Bir haberde gece denilen saat başka bir kaynakta öğleden sonraydı; bir tanık pencerenin açık olduğunu söylerken aileden biri bunun doğru olmadığını iddia ediyordu. Bazı bağlantılar artık açılmıyor, bazı isimlerin ardından birkaç eski haberden başka hiçbir şey gelmiyordu.
+İlk gece bilgisayarının başında neredeyse dört saat geçirdik. Eski gazete arşivleri, kayıp ilanları, kamuya açık soruşturma haberleri, ailelerin verdiği röportajlar, yıllar önce kapanmış forum ve blog sayfalarının arşivlenmiş kopyaları... Hepsi bir şekilde ortadan kaybolmuş insanlarla ilgiliydi. Doğa bunları yıllara ve ülkelere göre ayırmıştı. Bazı dosyalar birkaç satırdan ibaretti. Bazılarında son görülen saat, geride bırakılan eşyalar, evde açık kalmış bir müzikçalar gibi küçük ayrıntılar vardı. Ama bilgiler her zaman birbirini tutmuyordu: Bir haberde gece denilen saat başka bir kaynakta öğleden sonraydı; bir tanık pencerenin açık olduğunu söylerken aileden biri bunun doğru olmadığını iddia ediyordu. Bazı bağlantılar artık açılmıyor, bazı isimlerin ardından birkaç eski haberden başka hiçbir şey gelmiyordu.
 
 Doğa bunlara “buharlaşma vakaları” diyordu.
 
@@ -411,11 +381,9 @@ Doğa bunlara “buharlaşma vakaları” diyordu.
 
 Dosyaları önüme doğru itti.
 
-Birbirleriyle hiçbir ilişkisi olmayan bu insanların çoğunun müzikle olağanüstü yoğun bir ilişkisi olduğu anlatılıyordu. Bazılarının aile röportajlarında, bazılarının yayımlanmış günlük ya da mektup parçalarında aynı düşünce farklı biçimlerde dönüyordu: Burada kendilerine ait bir yer olmadığı, hayatın geri kalanıyla aralarında çözülemeyen bir uyumsuzluk bulunduğu. Ama bu da düzenli bir örüntü değildi; birkaç dosyada böyle bir iz yoktu, bazılarında ise insanın ne kadarını sonradan okumak istediğine bağlıydı.
+Birbirleriyle hiçbir ilişkisi olmayan bu insanların çoğunun müzikle olağanüstü yoğun bir ilişkisi olduğu anlatılıyordu. Bazılarının aile röportajlarında, bazılarının yayımlanmış günlük ya da mektup parçalarında aynı düşünce farklı biçimlerde dönüyordu: Burada kendilerine ait bir yer olmadığı, hayatın geri kalanıyla aralarında çözülemeyen bir uyumsuzluk bulunduğu. Ama bu da düzenli bir örüntü değildi; birkaç dosyada böyle bir iz yoktu.
 
-Doğa’nın en çok üzerinde durduğu şey, geride kalanların anlattıklarıydı. Birkaç aile röportajında, kayboluştan sonra ortada hiçbir müzik kaynağı yokken daha önce bilmedikleri bir melodiyi zihinlerinde duymaya başladıklarını söyleyen insanlar vardı. O melodi geldiğinde kaybettikleri kişiyi çok yoğun biçimde hatırladıklarını anlatıyorlardı. Başka dosyalarda böyle bir şey hiç geçmiyordu.
-
-Meksika’daki bir vakayı açıp bana gösterdi. Bir yerel gazete, karısı aylar önce kaybolan bir adamın evinde ölü bulunduğunu yazmıştı. Doğa’nın bulduğu eski bir blog kaydında adam, son haftalarda zihninde durmadan aynı melodinin döndüğünden söz ediyordu. Ölüm haberlerinden biri susuzluktan öldüğünü söylüyor, bir başkası ölüm nedenini belirtmiyordu. “Müziğin yeniden başladığı ve bu kez onunla yaşamaya karar verdiği” yolundaki son nottan ise yalnızca yıllar önceki isimsiz bir forum paylaşımı söz ediyordu; notun kendisi ortada yoktu.
+Doğa’nın en çok üzerinde durduğu şey, geride kalanların anlattıklarıydı. Birkaç aile röportajında, kayboluştan sonra ortada hiçbir müzik kaynağı yokken daha önce bilmedikleri bir melodiyi zihinlerinde duymaya başladıklarını söyleyenler vardı; bazıları da dinledikleri bir müziğin içinde, şarkıcının nefes alışında, uzayan bir hecenin ucunda ya da enstrümanların arasından geçen ince bir titreşimde kaybettikleri kişinin sesine benzeyen bir şey duyduklarını anlatıyordu. Meksika’daki bir vakayı açıp bana gösterdi. Bir yerel gazete, karısı aylar önce kaybolan bir adamın evinde ölü bulunduğunu yazmıştı. Doğa’nın bulduğu eski bir blog kaydında adam, son haftalarda zihninde durmadan aynı melodinin döndüğünden söz ediyordu. Ölüm haberlerinden biri susuzluktan öldüğünü söylüyor, bir başkası ölüm nedenini belirtmiyordu. “Müziğin yeniden başladığı ve bu kez onunla yaşamaya karar verdiği” yolundaki son nottan ise yalnızca yıllar önceki isimsiz bir forum paylaşımı söz ediyordu; notun kendisi ortada yoktu.
 
 “Belki psikoz” dedim.
 
@@ -443,21 +411,17 @@ Sustu. Ekrandaki isimlerden birine baktı.
 
 Doğa’nın bütün teorisi bu tek kelimede daha dürüst görünüyordu. Elinde bir ispat yoktu. Eksik, çelişkili, bazen güvenilirliği bile belirsiz izler vardı; o ise yıllardır bunların aynı yere çıkıp çıkmadığını anlamaya çalışıyordu.
 
-Kaybolanların ortak özelliklerini aylarca incelemişti. Doğa’ya göre melodileşme için müziği çok sevmek yetmiyordu. Hatta büyük müzisyenlerin çoğunun hiçbir yere kaybolmamış olması bunun en açık göstergesiydi. Diğer önemli ortaklık, insanların bu dünyayla bağlarının neredeyse tükenmiş olmasıydı. Müzik dışında burada kalmak için güçlü bir nedenleri kalmamıştı.
+Kaybolanların en belirgin ortak özelliklerini buldugunu iddia ediyordu. Kaybolanlar icin muzik zevk aldiklari bir sanat degildi. Daha ozel, uhrevi bir seydi. Ama bu yeterli degildi. Kaybolanlar arasinda muzisyen birinin olmayisi bunun en açık göstergesiydi. Kaybolan insanların diger ortak ozelligini vurguluyordu o yuzden: bu dünyayla bağlarının tükenmiş olması, olsa bile bu baglarin cok zayif olmasi, ve bu sayede, Doga'nin deyimiyle "muzigin onlardaki mevcut insan formunu cozebilmesi".
 
-Bunu söylerken sesi değişti.
+Bunu söylerken sesi değişmisti, cok iyi hatirliyorum: 
 
-“Benim de yok.”
-
-İlk kez bütün bunlarla onu birbirinden ayıramadığım anlardan biriydi.
-
-“Ben başından beri yanlış yerdeymişim gibi hissediyorum, Fuat. İnsanların sevdiği şeylerin çoğunu neden sevdiğini anlamıyorum. Yaptıkları şeylerin çoğunu neden yaptıklarını da. Sanki herkes aynı oyunun kurallarını doğuştan biliyor da bana açıklamayı unutmuşlar.”
+“Benim de boyle bir bagim yok. Ben başından beri yanlış yerdeymişim gibi hissediyorum, Fuat. İnsanların sevdiği şeylerin çoğunu neden sevdiğini anlamıyorum. Yaptıkları şeylerin çoğunu neden yaptıklarını da. Sanki onların formülü dünyanınkiyle uyuşuyor; benimki baştan bozuk yazılmış.”
 
 “Bunu hisseden ilk insan değilsin.”
 
 “Biliyorum.”
 
-“Belki de mesele bundan ibaret.”
+“Belki de mesele tamamen psikolojik”
 
 Başını salladı.
 
@@ -471,7 +435,11 @@ Bunu söylerken yüzünde coşku yoktu; insanın uzun zamandır bildiği bir şe
 
 Bu fikri bir kez kurduktan sonra hayatının geri kalanını tek bir işe vermişti: kendisini yeterince ileri götürecek müziği bulmaya.
 
-Doğa’ya göre her müzik insanı aynı ölçüde “sicimleştirmiyordu”. Bazıları yalnızca güzeldi. Bazıları insanı birkaç dakikalığına bulunduğu yerden çıkarıyordu. Çok azıysa bedeni ve benliği sanki gevşetiyor, insanı başka bir şeyin eşiğine kadar getiriyordu.
+“Her müzik aynı şeyi yapmıyor” dedi. “Bazıları yalnızca güzel. Dinliyorsun, bitiyor. Bazıları seni birkaç dakikalığına bulunduğun yerden çıkarıyor. Ama çok azı...”
+
+Durdu. Sanki doğru kelimeyi değil, doğru sınırı arıyordu.
+
+“Çok azı bedeni gevşetiyor. Benliği de. İnsan kendi formunun kenarına kadar geliyor.”
 
 Ama eşik yetmiyordu.
 
@@ -491,17 +459,13 @@ Sonra:
 
 “O zaman yapılması gereken, onu bulmak değil” dedi. “Yapmak.”
 
-Bunu söylediğinde içimde, açıklaması güç bir heyecan kabardı. Bir müziğin insanı yalnızca etkilemekle kalmayıp bulunduğu formdan çıkarabileceği düşüncesi, doğru mu yanlış mı olduğuna bakılmadan, başlı başına sarhoş ediciydi. Kusursuz müzik, o ana kadar Doğa’nın takıntısına verdiği ad gibiydi; birden, Doğa’yla zaten renklenmeye başlayan hayatımın önünde beliren heyecanlı bir hedef adayına, coşkulu bir imgeye dönüştü.
+Bunu söylediğinde içimde, açıklaması güç bir heyecan kabardı. Bir müziğin insanı yalnızca etkilemekle kalmayıp bulunduğu formdan çıkarabileceği düşüncesi, doğru mu yanlış mı olduğuna bakılmadan, başlı başına sarhoş ediciydi. Kusursuz Müzik (Doğa’nın takıntısına verdiği ad) birden, Doğa’yla zaten renklenmeye başlayan hayatımın önünde beliren heyecanlı bir hedef adayına, coşkulu bir imgeye dönüştü.
 
 Zihnimin daha akılcı tarafı hemen araya girdi. Bir kadının insan formunun kendisine ait olmadığını, bir melodiye dönüşmek istediğini söylediği bir konuşmada heyecanlanıyorsun, dedi. Bunun adı sezgi değil, deliliğe refakat etmektir. Kendine gel.
 
-Gelmedim. Doğa’nın başından beri “kurtuluş” dediği şeyin burada kalmamakla ilgili olduğunu artık biliyordum; ama bunun nereye varabileceğini tam olarak düşünmemeyi seçiyordum.
+Gelmedim. Doğa’nın başından beri “kurtuluş” dediği şeyin burada kalmamakla ilgili olduğunu artık biliyordum; ama bunun nereye varabileceğini düşünmek bile istemiyordum. Kusursuz Muzik imgesinin isigi adeta gozumu aliyordu, baska yere bakamiyordum.
 
-Doğa’nın biraz önce üzerine çizgiler çizdiği kâğıt sehpanın kenarından sarkıyordu. Ona bakarken kendime gelmenin, Doğa’nın açtığı o sarhoş edici ihtimalden geri çekilmek demek olduğunu düşündüm. Nietzsche’nin Apollon ile Dionysos arasında kurduğu gerilim geldi aklıma. İnsan yalnızca ölçüyle, sınırla ve açıklıkla yaşayamıyordu; bazen taşkın olanın, insanı kendinden çıkaran şeyin de kendi karanlık bilgisi vardı. Ben kendimi ölçüyü elden bırakmayan taraf sanıyordum: Doğa’nın Dionysosçu yolunu kapatmayacak, ama onu büsbütün dağılmaktan koruyacak bir tür Apolloncu rehber. Oysa daha bunu düşünürken bile onun açtığı ihtimale çoktan kapılmıştım.
-
-Böylece bundan sonra hayatımızın geri kalanı tek bir soru çevresinde dönmeye başladı: Bir insanı dünyadan çıkaracak müzik nasıl bulunur?
-
-∞
+Bu Dianysoscu coskunluk Doga ile birlikteligimizin merkezine su soruyu adeta cakti:  Bir insanı dünyadan çıkaracak müzik nasıl bulunur?
 
 Doğa bu soruyu ben hayatına girmeden çok önce sormaya başlamıştı.
 
@@ -509,15 +473,16 @@ Doğa bu soruyu ben hayatına girmeden çok önce sormaya başlamıştı.
 
 “Bildiğim bütün müzikleri tükettim” dedi. “Sonra henüz karşıma çıkmamış olanların peşine düştüm.”
 
-Türkiye’de küçük barları ve festivalleri dolaşmış; sonra Kuzey Avrupa’ya, Hindistan’a, Afrika’ya, Latin Amerika’ya kadar gitmiş. Her dönüşünde birkaç yeni kayıt, birkaç yeni isim ve biraz daha bilenmiş bir iştah varmış. Eşik ise yerinden oynamamış.
+Türkiye’de küçük barları ve festivalleri dolaşmış; sonra Kuzey Avrupa’ya, Hindistan’a, Afrika’ya, Latin Amerika’ya kadar gitmiş. Her dönüşünde birkaç yeni kayıt, birkaç yeni isim ve biraz daha bilenmiş bir iştah varmış. "Sicimlesme eşigine" ise yaklasamamis bile.
 
-Sonra ben de arayışa dahil oldum.
+Kusursuz muzik arayışina dahil olmam neredeyse kendilidinden oldu. “Harika! Müzikten anlayan iki kulak yararli olur illaki” diye karsiladi takima girisimi.
 
-“Müzikten anlayan iki kulak daha” dedi.
+∞
 
-Başlangıçta Doğa’nın seçtiği adayları birlikte dinliyorduk; çok geçmeden ben de gecenin bir yerinde kulaklıkla aynı ihtimalin peşine düşmeye başladım. Uluslararası yolculukları sürdürecek para ve zamanı kalmadığından daha çok yurt içinde dolaştık: küçük festivaller, rock barları, sabah otobüsleri, ucuz oteller. Bazen saatlerce yol gidip ilk parçanın ortasında umudumuzu kaybediyor, bazen isimsiz bir grubun üçüncü şarkısında birkaç dakika için eşiğe yaklaştığımızı sanıyorduk.
+Başlangıçta Doğa’nın seçtiği adayları birlikte dinliyorduk; çok geçmeden ben de gecenin bir yerinde kulaklıkla aynı ihtimalin peşine düşmeye başladım. Uluslararası yolculukları sürdürecek para ve zamanı kalmadığından daha çok yurt içinde dolaştık: küçük festivaller, rock barları, sabah otobüsleri, ucuz oteller. Bazen saatlerce yol gidip ilk parçanın ortasında umudumuzu kaybediyor, bazen isimsiz bir grubun bilmem kacinci şarkısında bir iki dakika için eşiğe yaklaştığımızı sanıyor, sonra sarkinin kendini adeta baltalamasina sahit oluyorduk. "Ne kadar ilginc degil mi" demisti bir keresinde Doga. "Sanki o guzel kismin degerini anlayamamislar ve devaminda onu imha etmisler".
 
-Bunca çabaya rağmen aradığımızı bulamadık. O günlerde fark etmediğim şey, bunun beni sandığım kadar üzmediğiydi; arayış uzadıkça Doğa’yla geçirdiğim zaman da uzuyordu.
+
+Bunca çabaya rağmen aradığımızı bulamadık. Yaklamadik bile. O günlerde fark etmediğim şey, bunun beni sandığım kadar üzmediğiydi; arayış uzadıkça Doğa’yla geçirdiğim zaman da uzuyordu.
 
 Bir gece, saat üçü geçmişti. Dinlediğimiz grup kötü değildi ama Doğa ikinci parçadan sonra çoktan umudunu kesmişti. Dönüş yolunda açık bir yerde çorba içiyorduk. Masanın üzerinde peçeteler, telefonlarımız ve Doğa’nın o gece için tuttuğu notlar vardı.
 
@@ -545,25 +510,15 @@ Biraz düşündü.
 
 “Bu yüzden sözlü müziği sevmiyorsun.”
 
-“İnsan sesini seviyorum. Kelimeleri değil. Kelime girince müzik bir şeyi göstermek zorunda kalıyor. Ses anlamını bırakıp müziğe karışınca başka.”
+“İnsan sesini seviyorum, enstruman olarak. Sozlu muziklerin icinde cok guzel olanlar da var tabi. Ama muzige soz girince muzigin o kendine ozgu, ustun formu bozuluyor. Alt sanat turleriyle karismamali muzik.”
 
-“Biraz müzik faşistisin.”
-
-“Biraz mı?”
-
-“Bayağı.”
+“Tam bir müzik faşistisin.”
 
 Önce ağzının bir kenarı kıpırdadı, sonra yüzündeki o sert, dünyaya karşı kapalı ifade birkaç saniyeliğine dağıldı. Kahkahadan çok, kendini tutamamış kısa bir nefes gibiydi. Doğa’nın güldüğü anları seviyordum. O anlarda peşinde koştuğumuz o garip ihtimal de, bizi başkalarından ayıran bütün tuhaflıklar da biraz hafifliyordu; insanı dünyadan çıkaracak müziği arayan iki münzevi değil, gecenin bir yerinde çorba içen iki arkadaş gibi oluyorduk.
 
-Sonunda yolculuk etmeyi bırakıp yeniden masaya döndük. Bizi en fazla etkileyen parçaların ortak desenini çıkarmak için tam 1297 parçalık bir liste hazırladık.
+Sonunda yolculuk etmeyi bırakıp yeniden masaya döndük. Bizi en fazla etkileyen parçaların ortak desenini çıkarmak için tam 1297 parçalık bir liste hazırladık. Bach, Handel ve Vivaldi’nin yanında senfonik metal, Kelt ezgileri, caz, elektronik müzik, Pink Floyd, Tori Amos ve birkaç arabesk parça duruyordu. Türler Doğa’nın umurunda değildi. “Yalnizca iki tur muzik var. İyi müzik ve kötü müzik”.
 
-Bach, Handel ve Vivaldi’nin yanında senfonik metal, Kelt ezgileri, caz, elektronik müzik, Pink Floyd, Tori Amos ve birkaç arabesk parça duruyordu. Türler Doğa’nın umurunda değildi.
-
-“İyi müzik ve kötü müzik var.”
-
-Listeyi yeniden yeniden ayırdık. Klasik müziğin, özellikle bazı Barok eserlerin payı belirginleşince tekrar eden yapıları ve sonsuzluk duygusunu inceledik. Sonra Kelt müziğine döndük. Her seferinde desen, yaklaştığımızı sandığımız anda dağıldı: bizi aynı yere götüren iki parça birbirine hiç benzemiyor, birbirine çok benzeyen iki eserden yalnızca biri Doğa’da bir şey yaratıyordu.
-
-Liste büyüdükçe daha çok şey öğreniyor, aradığımız şeyin ne olduğunu giderek daha az biliyorduk.
+Klasik müziğin, özellikle bazı Barok eserlerin payı belirginleşince tekrar eden yapıları ve sonsuzluk duygusunu inceledik. Sonra Kelt müziğine döndük. Her seferinde desen, yaklaştığımızı sandığımız anda dağıldı: bizi aynı yere götüren iki parça birbirine hiç benzemiyor, birbirine çok benzeyen iki eserden yalnızca biri Doğa’yi etkliyordu. Liste büyüdükçe daha çok şey öğreniyor, aradığımız şeyin ne olduğunu giderek daha az biliyorduk.
 
 Bu arada Doğa’nın yalnızca olağanüstü iyi bir dinleyici olmadığını da iyice anlamıştım. Tanıdığı bir eserden kısa bir bölüm duyduğunda çoğu zaman parçayı, besteciyi, bazen yorumcuyu bile çıkarabiliyordu. Bilmediği bir şey çaldığında da müziğin nerede açıldığını, nerede tökezlediğini benden çok önce yakalıyordu.
 
@@ -597,13 +552,9 @@ Doğa şaşırmış gibiydi.
 
 “Nasıl duymuyorsun?”
 
-Sonra anlatmaya başladı. Viyolonselin arkasında başka bir yaylı çizgi olduğunu, onun altında neredeyse sabit duran çok ince bir titreşimin devam ettiğini, kadın sesinin girdiği anda da bu titreşimin ikiye ayrıldığını söyledi. Bir de nefeslinin hemen ardından çok kısa bir ses daha duyuyormuş; nota gibi değilmiş, daha çok ana sesin arkasından beliren gölgesi gibi.
+Sonra anlatmaya başladı. Viyolonselin arkasında başka bir yaylı çizgi olduğunu, onun altında neredeyse sabit duran çok ince bir titreşimin devam ettiğini, kadın sesinin girdiği anda da bu titreşimin ikiye ayrıldığını felan söyledi. Bir de nefeslinin hemen ardından çok kısa bir ses daha duyuyormuş; nota gibi değilmiş, daha çok ana sesin arkasından beliren gölgesi gibi. Bunun gibi seyler.
 
-Parçayı yeniden açtım.
-
-Viyolonseli duyuyordum.
-
-Onun anlattığı alttaki sesleri duymuyordum.
+Parçayı yeniden açtım. Viyolonseli duyuyordum ama onun anlattığı alttaki sesleri duymuyordum.
 
 “Şimdi?” diye sordu.
 
@@ -639,23 +590,18 @@ Parçayı tekrar başlatmak için uzandım.
 
 “Nasıl boş ver? Bana müziğin içinde benim duyamadığım sesler olduğunu söylüyorsun.”
 
-Doğa bunu ilk kez düşünüyormuş gibi birkaç saniye yüzüme baktı.
-
-Sonra:
-
-“Çocukken herkesin böyle duyduğunu sanıyordum” dedi.
+Doğa bunu ilk kez düşünüyormuş gibi birkaç saniye yüzüme baktı. 
+Sonra “Çocukken herkesin böyle duyduğunu sanıyordum” dedi.
 
 “Böyle derken?”
 
 Ama çoktan ekrana dönmüştü.
 
-“Boş ver, Fuat. Parçayı aç.”
+“Boş ver, Fuat. Sen bastan ac sarkiyi”
 
-Açtım. Artık mesele yeterince dikkatli dinlememem değildi: Doğa bir şeyler duyuyordu, ben duymuyordum.
+Açtım. Artık emindim. Sorun yeterince dikkatli dinlememem değildi: Doğa bir şeyler duyuyordu, ben duymuyordum.
 
-Piyano ve kemanda ise iyi çalmaktan fazlasını yapıyordu; müziğin nereye varacağını sanki daha ilk notadan biliyordu.
-
-İlk kez piyanosunun başına oturup Bach çaldığında onu izlemek yerine ellerine baktığımı hatırlıyorum. Parmakları tuşların üzerinde nereye gideceklerini düşünmüyor gibiydi. Sanki müzik zaten oradaydı da Doğa yalnızca üzerindeki örtüyü kaldırıyordu.
+Iyi bir Piyano virtuozuydu. İlk kez piyanosunun başına oturup Bach çaldığında onu izlemek yerine ellerine baktığımı hatırlıyorum. Parmakları tuşların üzerinde nereye gideceklerini düşünmüyor gibiydi. Sanki müzik zaten oradaydı da Doğa yalnızca üzerindeki örtüyü kaldırıyordu.
 
 “Bunu nasıl yapıyorsun?” diye sordum parça bittiğinde.
 
@@ -687,9 +633,7 @@ Ayağa kalktı, raftan kalın bir dosya çıkarıp önüme bıraktı. Liedler, n
 
 “Güzel.”
 
-Bir an durdu.
-
-“Yeterli değil.”
+Bir an durdu. “Ama yeterli değil.”
 
 İlk tanıştığımız gece söylediği cümleyi yeniden duyunca istemeden güldüm.
 
@@ -707,7 +651,7 @@ Sonunda kapağı kapattı.
 
 Böyle konuştuğunu ilk kez duyuyordum.
 
-Ertesi gün bana birkaç gün kimseyi görmek istemediğini söyledi. Perdeleri kapatacak, odasını karartacak ve zihnini bütün bu analizlerden temizleyecekti. Belki kusursuz müzik, onu zorlamayı bıraktığında kendiliğinden ortaya çıkardı.
+Ertesi gün bana birkaç gün boyunca kimseyi görmek istemediğini söyledi. Perdeleri kapatacak, odasını karartacak ve zihnini bütün bu analizlerden temizleyecekti. Belki kusursuz müzik, onu zorlamayı bıraktığında kendiliğinden ortaya çıkardı. Bir de oyle deneyecekti.
 
 “Kaç gün?”
 
@@ -715,15 +659,11 @@ Ertesi gün bana birkaç gün kimseyi görmek istemediğini söyledi. Perdeleri 
 
 “Ben de geleyim mi?”
 
-Gideceği bir yer yoktu elbette; bunu ikimiz de biliyorduk. Aylar önce bir konser afişinin ardından sorduğum soruyu bilerek tekrarlamıştım. O zaman cevap tek kelimeydi: “Gel.”
-
-Ama bu kez başını salladı.
-
-“Hayır.”
+Gideceği bir yer yoktu elbette; bunu ikimiz de biliyorduk. Aylar önce konser afişi mesajinin ardından sorduğum soruyu bilerek tekrarlamıştım. O zaman cevap tek kelimeydi: “Gel.” Ama bu kez başını salladı. “Hayır.”
 
 Bunu sert ya da soğuk söylemedi. Sesi içten ve yorgundu; sanki beni dışarıda bırakmak istemiyor, ama başka türlü yapamayacağını biliyordu. Üstelemek bir anda uygunsuz göründü.
 
-Sonra kapının önünde, ben çıkmak üzereyken:
+Sonra kapının önünde, ben çıkmak üzereyken seslendi:
 
 “Fuat.”
 
@@ -731,7 +671,7 @@ Döndüm.
 
 “Kendine iyi bak.”
 
-Sözcükleri biraz vurgulayarak söylemişti. İlk kez, Doğa’nın bana yalnızca müzikten anlayan iki kulak gibi bakmadığını açıkça hissettim. Kaygı mıydı, şefkat mi, bilmiyordum; ama yokluğunun bende bir şey yapacağını sezmiş gibiydi.
+Sözcükleri biraz vurgulayarak söylemişti. İlk kez, Doğa’nın bana yalnızca müzikten anlayan iki kulak gibi bakmadığını açıkça hissettim. Kaygı mıydı, şefkat mi, bilmiyordum; ama yokluğunun beni kotu etkileyecegini sezmiş gibiydi.
 
 ∞
 
@@ -743,7 +683,7 @@ Yokluğunu kendi tarif ettiği küçük düzenin içinde düşünüyordum: karan
 
 İkinci cümleyi birinciden daha uzun süre okudum. Doğa’ya ne kadar bağlandığımı, ucu açık bir “görüşmeyelim” karşısında ancak o zaman bütünüyle fark ettim.
 
-Ertesi sabah her zamanki saatte kalktım. Yalandan bir kahvaltı, koyu çayla ilk sigaram, birkaç sayfa çeviri... Hayat görünüşte eskisi gibiydi; sorun da buydu. Akşama doğru ona yazmayı düşündüm, yazmadım. Gece içtim. İkinci gün daha çok içtim. Üçüncü gün birlikte hazırladığımız listeyi açtım; müziği yokluğunu bastırmak için dinliyor, her parçayla onu biraz daha belirginleştiriyordum.
+Ertesi sabah her zamanki saatte kalktım. Yalandan bir kahvaltı, koyu çayla ilk sigaram, birkaç sayfa çeviri... Hayat görünüşte eskisi gibiydi; sorun da buydu zaten. Akşama doğru ona yazmayı düşündüm, yazmadım. Gece içtim. İkinci gün daha çok içtim. Üçüncü gün birlikte hazırladığımız listeyi açtım; müziği yokluğunu bastırmak için dinliyordum ama her yeni parça yoklugunu daha cok hissettiriyordu.
 
 Bir ara kapısına gitmeyi düşündüm; sonra bunun onu merak etmekten çok kendi yoksunluğumu gidermek olduğunu fark edip vazgeçtim.
 
@@ -2095,11 +2035,11 @@ Parça başladı. Trabzon’daki ilk denememde müziği değil mucizeyi dinledi�
 
 İlk birkaç saniye hiçbir şey olmadı. Sonra kadın sesi yükseldi.
 
-Söylenen sözleri takip etmedim. Sesin kendisini dinledim: nefesin sese dönüştüğü yeri, sesin arkasındaki o ince dokuyu, bir hecenin anlamını kaybedip yalnız titreşim olarak kaldığı anı.
+Söylenen sözleri takip etmedim. Sesin kendisini dinledim: nefesin sese dönüşmeden hemen önce bıraktığı o kısacık boşluğu, bir hecenin uzayıp anlamından ayrıldığı yeri, kelimenin arkasında kalan çıplak titreşimi.
 
-Ve o anda, kadın sesinin dokusunda Doğa’yı duyar gibi oldum.
+Ve o anda, şarkıcının kelimeye hazırlanırken aldığı o kısacık nefeste Doğa’nın sesine benzeyen bir şey duydum.
 
-Bunu sana nasıl anlatacağımı bilmiyorum. Julee Cruise’un sesi birden Doğa’nın sesine dönüşmedi. Böyle bir şey olmadı. Parçanın içinden “Fuat” diye seslenmedi bana. Ama kadın sesinin arkasında, daha önce yüzlerce kez dinlediğim halde hiç duymadığım ince, karanlık bir titreşim belirdi; sonra bir başkası ona eklendi. Doğa’nın bana aylar önce tarif ettiği, benim inatla duyamadığım o katmanlar gibi.
+Bunu sana nasıl anlatacağımı bilmiyorum. Julee Cruise’un sesi birden Doğa’nın sesine dönüşmedi. Böyle bir şey olmadı. Parçanın içinden “Fuat” diye seslenmedi bana. Duyduğum şey bir cümle değildi, adım değildi; yalnızca Doğa’nın konuşurken sesinin dibinde duran o koyu, yorgun titreşime benziyordu. Sonra kadın sesinin arkasında, daha önce yüzlerce kez dinlediğim halde hiç duymadığım başka ince katmanlar belirdi. Doğa’nın bana aylar önce tarif ettiği, benim inatla duyamadığım o katmanlar gibi.
 
 Parçayı geri almadım. Kanıt istemedim. Bunun yalnızca yasın ve zihnimin bana oynadığı bir oyun mu, yoksa gerçekten müziğin içinde beliren bir şey mi olduğunu bilmiyordum. O anda bilmek de istemedim.
 
