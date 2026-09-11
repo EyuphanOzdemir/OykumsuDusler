@@ -22,7 +22,7 @@ Temel sorunlardan biri şudur:
 Kozmik/anlamsal bir düzen bulunmasa bile sevgi, şefkat, koruma, hatırlama ve özellikle hikâyeler yerel ve insan-yapımı anlamlar üretebilir. Bir hayatın kendisi anlamsız olabilirken onun hikâyesi anlamlı olabilir.
 
 ### MÜZİĞİN KANATLARI
-Doğa için çözüm, insan yaşamının içinde anlam üretmekten çok insan formunun dışına çıkma arzusudur. Müzik yalnızca teselli değildir; başka bir varoluş biçimine geçiş ihtimali olarak görülür. Fuat için ise asıl sorun giderek Doğa'yı tutmak ile onun olmak istediği şeye dönüşmesine izin vermek arasındaki çatışmaya dönüşür. Yeni finalde Doğa'nın bedensel ölümü inkâr edilmez; açık kalan soru, Doğa dediğimiz şeyin bedenden ibaret olup olmadığıdır. Fuat'ın umudu kesin bir metafizik kanıttan değil, şefkatten, güvenli bağ kurmaktan ve yalnız direnmek zorunda olmadığını anlamasından doğar.
+Doğa için çözüm, insan yaşamının içinde anlam üretmekten çok insan formunun dışına çıkma arzusudur. Müzik yalnızca teselli değildir; başka bir varoluş biçimine geçiş ihtimali olarak görülür. Fuat için ise asıl sorun giderek Doğa'yı tutmak ile onun olmak istediği şeye dönüşmesine izin vermek arasındaki çatışmaya dönüşür. Güncel finalde Doğa kaybolur; cesedi bulunmaz, öldüğü ya da melodileştiği kesinleşmez. Fuat'ın sonuçsuz aramaları yorgunlukla azalır. Daha sonra Oasis'te Doğa'nın izi olabilecek bir ses katmanı duyar; bunun Doğa mı, kendi zihninin kurduğu bir bağ mı olduğunu çözmez. Nightingale yalnızca Irmak hattına aittir. Fuat'ın umudu kesin bir metafizik kanıttan değil, Doğa'nın şefkatinden ve ne olacağını bilmeden başka insanlara açılma ihtimalinden doğar. Depresyonu bitmez; hayatı önceden çözmeye çalışmak yerine yaşamaya, hareket etmeye yönelir.
 
 ### KUSURSUZ
 Systemisler anlamsızlık sorununa pratik/eylemsel bir yanıt verirler:
@@ -41,7 +41,7 @@ Bunu metinde açıklayan bir şemaya dönüştürme. Bu yalnızca editoryal pusu
 
 ### Ölümden sonra devam etme
 - `HATIRA`: İnsan başkalarının hatıralarında yeniden yaşar.
-- `MÜZİĞİN KANATLARI`: İnsan melodileşerek başka bir forma geçebilir mi; beden öldükten sonra sevilen kişinin izi müziğin, yasın ve şefkatin içinde hâlâ duyulabilir mi?
+- `MÜZİĞİN KANATLARI`: İnsan melodileşerek başka bir forma geçebilir mi; başına ne geldiğini bilmediğimiz sevilen birinin izi müzikte mi sürer, yoksa onu müziğin içine dinleyen zihin mi yerleştirir?
 - `KUSURSUZ`: Ölüm biyolojik/teknik bir sorun olarak yenilebilir mi; birey daha büyük sistemin parçası olarak devam edebilir mi?
 
 ### Birey ve daha büyük bütün

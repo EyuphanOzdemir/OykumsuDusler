@@ -87,7 +87,7 @@ Doğa:
 - Doğa'nın yanında taşıdığı Orakei Basin fotoğrafında Melih ve Diren vardır; fotoğrafı Müge çekmiştir.
 - Müge fotoğrafı ölmeden birkaç gün önce Doğa'ya verir.
 - Kronoloji: önce Melih, sonra Diren, sonra Müge ölür.
-- `MÜZİĞİN KANATLARI` finalinde bu fotoğraf Doğa'nın ölümünden sonra polis tarafından Fuat'a verilir. Fotoğrafın arkasındaki kısa mesajda Melih'in “Doğum ne kadar saçmaysa ölüm de o kadar saçma” sözü geri döner; bu Doğa'nın yeni icat ettiği bir aforizma gibi yazılmamalıdır.
+- Güncel `MÜZİĞİN KANATLARI`nda Doğa'nın cesedi bulunmaz, fotoğraf polis tarafından Fuat'a verilmez. Melih'in **“Doğum ne kadar saçmaysa ölüm de o kadar saçma”** sözü Doğa'nın veda mektubunda geri döner; Fuat sözün kaynağını bilmez. Bu, Doğa'nın yeni icat ettiği bir aforizma gibi yazılmamalıdır.
 - Otel balkonu sahnesinde Doğa'nın yanında genç bir adam vardır: Fuat.
 - Fuat bu sahnede solgun, uykusuz ve psikolojik olarak dağılmış görünür; Doğa'nın anlattıklarını aceleci ve kesik bir yorumla kendi anlamına çekmeye çalışır, Doğa onu hemen durdurur.
 - Şiddetli yağmur vardır.
@@ -95,7 +95,9 @@ Doğa:
 - Doğa fotoğrafı çıkarır ve aile geçmişinden söz eder.
 - “Atladığımızda” ifadesi Melih'in onların planını anlamasını sağlar.
 
-`HATIRA`, `MÜZİĞİN KANATLARI`ndan sonra okunacağı için Doğa-Fuat final ayrıntıları artık okurun bildiği olayların Melih açısından yeniden kurulmasıdır. Bu bölümü genişletirken MK'yi özetleme; sahne Melih'in müdahale edemeyişi, unutuluşa yaklaşması ve hatıra mantığı için çalışmalıdır.
+**Açık süreklilik notu:** Yukarıdaki otel/fotoğraf konuşması `HATIRA`da yer alır; güncel MK metni bu konuşmayı aktarmıyor. MK'de Fuat şarabı içtikten sonra Doğa'nın anlattıklarını parçalı hatırlar. Bu parçalı hatırlayışı farkı kesin olarak çözen bir açıklama sayma; iki metni sessizce birbirine uydurma. Melih'in **“Doğa da ölecek, çok yakında”** düşüncesi de sahneden çıkardığı sonuçtur, Doğa'nın ölümünün doğrulanması değildir.
+
+`HATIRA`, `MÜZİĞİN KANATLARI`ndan sonra okunur; otel gecesi Melih'in hatıra deneyimi içinden yeniden görülür. Bu bölümü genişletirken MK'yi özetleme; sahne Melih'in müdahale edemeyişi, unutuluşa yaklaşması ve hatıra mantığı için çalışmalıdır.
 
 Bu maddelerden biri `MÜZİĞİN KANATLARI`nda değiştirilirse iki öyküyü birlikte kontrol et.
 
