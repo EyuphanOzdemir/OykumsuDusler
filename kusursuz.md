@@ -448,23 +448,23 @@ Birkaç gün boyunca dışarıdan bakıldığında eski hayatıma dönmüş gibi
 
 Sonra kendime kızıyordum. Aptal, aptal, aptal! Sibel’i araştırarak onun üzerinde güç kazanacakmışım. Al sana güç! Avcılığa kalkarsan av olursun işte böyle.
 
-Ama gerçekten av mıydım, yoksa korktuğu için çevresindeki her harekete anlam yükleyen bir paranoyak mı, bunu bilmiyordum. İlk günlerde her sesin ardında bir tehdit arıyordum. Tehdit ortaya çıkmadıkça bir yandan ondan daha çok kuşkulanıyor, bir yandan da kendimden kuşkulanmaya başlıyordum. Paranoyam, başıma bir şey gelmesini beklerken geçen zamanın kendisinden besleniyor olabilirdi.
+Ama gerçekten av mıydım, yoksa korktuğu için çevresindeki her harekete anlam yükleyen bir paranoyak mı, bunu bilmiyordum.
 
-Bir hafta kadar sonra korkum gündelik hayatımın içine karıştı. Kapıyı iki kez kilitlemem, eve girince perdeleri kapatmam, bilgisayarımı kullanmadığım zamanlarda bile fişten çekmem artık bana olağan görünüyordu. İnsan, deliliğe benzeyen davranışlarını yeterince düzenli tekrarlarsa onları sağlıklı bir insanın alışkanlıkları sanabiliyordu.
+İlk günlerde her sesin ardında bir tehdit arıyordum. Bir hafta kadar sonra korkum gündelik hayatımın içine karıştı. Kapıyı iki kez kilitlemem, eve girince perdeleri kapatmam, bilgisayarımı kullanmadığım zamanlarda bile fişten çekmem artık bana olağan görünüyordu. İnsan, deliliğe benzeyen davranışlarını yeterince düzenli tekrarlarsa onları sağlıklı bir insanın alışkanlıkları sanabiliyordu.
 
 Kisacasi zihnim o kadar bulanikti ki, başıma hiçbir şey gelmese şaşırmazdım. Gelse de şaşırmazdım.
 
-O gece eve döndüğümde saat ikiyi geçmişti. Barda her zamankinden az içmiştim; bunun nedeni iradem değil, insanların bir süre sonra katlanılmaz hâle gelmesiydi. Apartmanın girişinde kimseyi görmedim. Merdivenleri çıkarken bir alt kattaki dairenin televizyon sesi dışında olağan dışı hiçbir şey duymadım. Kapım kilitliydi. Anahtarı iki kez çevirdim, içeri girdim ve arkamdan yine iki kez kilitledim.
+Bir gece eve döndüğümde saat ikiyi geçmişti. Barda her zamankinden az içmiştim; bunun nedeni iradem değil, insanların bir süre sonra katlanılmaz hâle gelmesiydi. Apartmanın girişinde kimseyi görmedim. Merdivenleri çıkarken bir alt kattaki dairenin televizyon sesi dışında olağan dışı hiçbir şey duymadım. Kapım kilitliydi. Anahtarı iki kez çevirdim, içeri girdim ve arkamdan yine iki kez kilitledim.
 
 Koridorun ışığını yakmadım. Son günlerde karanlıkta eve girmeyi tercih ediyordum; pencereden bakan biri varsa hangi odada olduğumu hemen anlamasın diye. O sırada bu önlemin ne kadar gülünç olduğunu bilmiyordum. Ayakkabılarımı çıkardım, duvara çarpa çarpa salona ilerledim. Pencereden sızan solgun sokak ışığı eşyaların yalnızca sınırlarını gösteriyordu. Kanepeye kendimi bırakmak üzereyken, karşısındaki tekli koltukta birinin oturduğunu fark ettim.
 
 Kalbim göğüs kafesimi çatlatacak kadar sert vurdu.
 
-Sibel’di. Siyah giysileri karanlığın içinde neredeyse bütünüyle kaybolmuştu. Loş ışıkta yüzü ve elleri rahatlıkla seçiliyordu. Sırtı koltuğa yaslı, elleri dizlerinin üzerinde, başı bana dönük oturuyordu. Ne kadar zamandır orada olduğunu gösteren hiçbir sabırsızlık, hiçbir yorgunluk yoktu yüzünde.
+Sibel’di. Siyah giysileri karanlığın içinde neredeyse bütünüyle kaybolmuştu. Yüzü ve elleri ise los isikta rahatlıkla seçiliyordu. Sırtı koltuğa yaslı, elleri dizlerinin üzerinde, başı bana dönük oturuyordu. Ne kadar zamandır orada olduğunu gösteren hiçbir sabırsızlık, hiçbir yorgunluk yoktu yüzünde.
 
 Elim refleksle duvardaki düğmeye uzandı.
 
-“Yakma lütfen.”
+O cok sevdigim ses “Yakma lütfen.” dedi.
 
 Sesini duymam korkumu azaltmadı; korkunun biçimini değiştirdi. Birkaç saniye önce evime girmiş belirsiz bir varlıkla karşı karşıyaydım. Şimdi ise beni öldürmeye gelmiş olabilecek, âşık olduğum kadınla.
 
@@ -472,23 +472,15 @@ Elimi indirdim. “Kapı kilitliydi. İçeri nasıl girdin?”
 
 “Onemli degil”
 
-Normalde bu cevaba kızardım. Fakat kendi evimde ayakta dikiliyor, oturmak için ondan izin bekliyormuşum gibi hissediyordum. Kanepeye geçip tam karşısına oturdum. Aramızdaki sehpanın üzerinde önceki geceden kalma boş bir şişe, yarısı dolu bir kül tablası ve birbirine dolanmış birkaç kablo vardı. Sibel’in varlığı odanın bütün dağınıklığını birden görünür kılmıştı. İnsan bazı insanları evine aldığında pisliğinden utanır; bazıları geldiğinde ise bütün hayatından.
+Normalde bu cevaba kızardım. Fakat kendi evimde ayakta dikiliyor, oturmak için ondan izin bekliyormuşum gibi hissediyordum. Kanepeye geçip tam karşısına oturdum. Aramızdaki sehpanın üzerinde önceki geceden kalma boş bir şişe, yarısı dolu bir kül tablası ve birbirine dolanmış birkaç kablo vardı. Sibel’in varlığı odanın bütün dağınıklığını birden görünür kılmıştı.
 
-“Beni öldürmeye geldiysen,” dedim, “önce evi toplamama izin vermen çok zarif bir davranış olur.”
+“Beni öldürmeye geldiysen,” dedim, “önce evi toplamama izin vermen çok zarif bir davranış olur. Bu pislikte olmek istemem”
 
-Şakama gülmedi. Bunu beklemiyordum zaten. Yine de birkaç saniye yüzümü inceledikten sonra, “Seni öldürmeye gelmedim,” dedi.
+Şakama gülmedi. Bunu beklemiyordum zaten. Yine de birkaç saniye yüzümü inceledikten sonra, “Seni öldürmeye gelmedim,” dedi. Ne yalan soyleyeyim, gercekten derin bir oh cektim. Fark etti mi bilmiyorum. "Asik oldugu kadin tarafindan oldurulme korkusu her erkege nasip olmaz. Gercekten cok ozgun bir ask yasiyorum" diye dusunmeden edemedim.
 
-“İçimi rahatlattın. Peki yalnız mı geldin?”
+Sibel’in beni azarlamasını, hesabını neden kullandığımı sormasını, polisi ya da adını bilmediğim örgütün adamlarını çağırmakla tehdit etmesini bekliyordum. Oysa yüzünde öfkeden ve cezlandirma isteginden eser yoktu. Agır bir kararın yorgunluğu vardı yalnizca. Sessizce karsimda oturuyor bana bakiyordu. O bakislardan hiv bir sey okuyamiyordum.
 
-“Evet.”
-
-“Buna da inanmam mı gerekiyor?”
-
-“Hayır. Bu gece söyleyeceğim hiçbir şeye hemen inanman gerekmiyor.”
-
-Bu söz, ondan beklediğim tehditlerin hiçbirine benzemediği için beni daha çok tedirgin etti. Sibel’in beni azarlamasını, hesabını neden kullandığımı sormasını, polisi ya da adını bilmediğim örgütün adamlarını çağırmakla tehdit etmesini bekliyordum. Oysa yüzünde öfkeden çok, ağır bir kararın yorgunluğu vardı. Sibel’de ilk kez yorgunluğa benzeyen bir şey görüyordum; bedeninde değil, seçmek zorunda kaldığı sözcüklerde.
-
-“Sisteme girdiğimi biliyorsun,” dedim.
+Sessizligi bozmak icin “Sisteme girdiğimi biliyorsun,” dedim.
 
 “Biliyorum.”
 
@@ -496,93 +488,91 @@ Bu söz, ondan beklediğim tehditlerin hiçbirine benzemediği için beni daha �
 
 “Programının içindeki bileşeni üç gün sonra bulduk. O andan beri ne yaptığını izliyoruz.”
 
-Utanç, korkudan daha hızlı yayıldı içime. Onları avladığımı sandığım bütün geceler boyunca ekranın öbür tarafından seyredilmiştim. Kendi zekâma duyduğum güven, bir anda yanlışlıkla açık bırakılmış bir kamera önünde soyunmuş olmanın utancına dönüştü.
+Korkunun yerini utanc almisti artik. Onları avladığımı sandığım bütün geceler boyunca ekranın öbür tarafından seyredilmiştim. Kendi zekâma duyduğum güven, bir anda yanlışlıkla açık bırakılmış bir kamera önünde soyunmuş olmanın utancına dönüştü.
 
-“Neden durdurmadınız?”
+“Neden durdurmadınız beni?”
 
 “Durdurduk. Fark ettikten sonra o hesabın eriştiği alanı gerçek ağdan ayırdık. Gördüklerin bütünüyle sahte değildi ama sandığın kadar gerçek de değildi. Sana neyi göstermenin ne sonuç vereceğini anlamak istedim.”
 
-“Yani bu da bir sınavdı.”
+“Yani bu bir sınavdı.”
 
 “Başlangıçta değildi.”
 
 Bu küçük düzeltme tuhaf biçimde hoşuma gitti. Demek ki Sibel her şeyi en baştan hesaplamamıştı; ben de onun kurduğu oyunun içinde önceden belirlenmiş bir değişkenden ibaret değildim. Sonra asıl söylediğini kavradım.
 
-“İstedim, dedin. Siz değil.”
+“'İstedim', dedin. 'Istedik' değil.”
 
 “Seni hemen devre dışı bırakmak isteyenler vardı.”
 
-“Devre dışı bırakmak ne demek?”
+“Devre dışı bırakmaktan isime son vermeyi kastetmiyorsun, degil mi?”
 
-“Bunu sorma.”
+"Hayir, onu kastetmiyorum"
 
-“Böyle söyleyince insanın aklına işten çıkarmak gelmiyor.”
+Sibel’in sesinde tehdit yoktu, yalnızca durumu bildiriyordu. Boğazım kurudu. Sehpanın üzerindeki şişeyi alıp içinde bir şey kalmış mı diye baktım. Tam o sırada elim kablolardan birine takıldı; şişe parmaklarımdan kayıp yere doğru devrildi.
 
-“Gelmemeli.”
-
-Sibel’in sesinde tehdit yoktu. Zaten söylediği şeyin tehdit olmasına gerek yoktu; bir sıcaklık ölçer gibi yalnızca durumu bildiriyordu. Boğazım kurudu. Sehpanın üzerindeki şişeyi alıp içinde bir şey kalmış mı diye baktım. Tam o sırada elim kablolardan birine takıldı; şişe parmaklarımdan kayıp yere doğru devrildi.
-
-Camın parkede parçalanmasını bekledim. Olmadı.
-
-Sibel şişeyi yere çarpmadan birkaç santimetre önce yakalamıştı.
-
-Koltuktan ne zaman doğrulduğunu görmüştüm; anlayamadığım şey, aramızdaki mesafeyi iki kısa adımda nasıl kapattığıydı. Hareketinde doğaüstü bir kesinti yoktu. Her aşaması seçilebiliyordu: ayağını yere basışı, sehpanın köşesinden dönüşü, eliyle şişenin boynunu kavrayışı. Beni sarsan, bunların hiçbirinde boşa harcanmış tek bir hareket bulunmamasıydı. Şişeyi masaya bıraktığında nefesi biraz hızlanmıştı ama yüzünde telaş yoktu.
+Camın parkede parçalanmasını bekledim. Olmadı. Sibel şişeyi yere çarpmadan birkaç santimetre önce yakalamıştı. Koltuktan doğrulduğunu görmüştüm; anlayamadığım şey, aramızdaki mesafeyi iki kısa adımda nasıl kapattığıydı. Hareketinde doğaüstü bir kesinti yoktu. Hareketinin her aşamasni secebilmistim: ayağını yere basışı, sehpanın köşesinden dönüşü, eliyle şişenin boynunu kavrayışı. Beni sarsan sey butun bunlari o kisacik sure icerisinde yapabilmesiydi.
 
 Sarhoş olup olmadığımı anlamak için gözlerimi ovuşturdum.
 
 “Bunu nasıl yaptın?”
 
-“Bunun için geldim.”
+“Bunun için geldim zaten”
 
 “Şişeyi yakalamak için mi?”
 
 “Sana bazı şeylerin sandığından daha büyük olduğunu göstermek için.”
 
-Bir süre ikimiz de konuşmadık. Sibel koltuğunda yine kımıldamadan oturuyordu. İlk tanıştığımız gün dikkatimi çeken o olağanüstü hareketsizlik, gece üçte gelen e-mailler, birkaç saat sonra gönderdiği yeni sorular, hiç yorgun görünmemesi, teknik konuları açıklama gerektirmeden kavraması… Aylar boyunca birbirinden ayrı tuttuğum ayrıntılar bir yapbozun parçaları gibi birleşmeye çalışıyor, fakat ortaya çıkan resim aklın kabul edebileceği bir şeye benzemiyordu.
+Bir süre ikimiz de konuşmadık. Hala saskindim ve bunu nasil yapabildi diye dusnuyordum. Sibel koltuğunda yine kımıldamadan oturuyordu. İlk tanıştığımız gün dikkatimi çeken o olağanüstü hareketsizlik, gece üçte gelen e-mailler, birkaç saat sonra gönderdiği yeni sorular, hiç yorgun görünmemesi, teknik konuları açıklama gerektirmeden kavraması, ve butun bunlarin ustune Sparta web sitesi… Aylar boyunca birbirinden ayrı tuttuğum ayrıntılar bir yapbozun parçaları gibi birleşmeye çalışıyor, fakat ortaya çıkan resim aklın kabul edebileceği bir şeye benzemiyordu.
 
-“Siz kimsiniz?” diye sordum.
+“Siz kimsiniz?” diye sordum sonunda.
+
+Sibel sanki bu soruyu bekliyormus gibi hemen yanitladi:
 
 “Önce ne olmadığımızı söyleyeyim. Bir istihbarat örgütü değiliz. Bir şirket, tarikat ya da yalnızca ortak çıkarları olan güçlü insanlar topluluğu da değiliz.”
 
-“Sparta değilsiniz yani.”
+“Sparta adli gizli bir orgut mu?”
 
-“O adı sen koydun.”
+“Sparta?”
 
-“Kalkanı siz koydunuz.”
+"Molon Labe armasi, web sitenizdeki..."
 
 “Kalkan rastgele seçilmedi. Fakat gerçek adımızı, gerçek adımızın yazıldığı bir giriş ekranına koyacak kadar dikkatsiz değiliz.”
 
 “Gerçek adınız ne?”
 
-Sibel hemen cevap vermedi. Başını pencereye doğru çevirdi. Dışarıda, gecenin o saatinde bile uzaklardan bir motor sesi geliyor; karşı apartmanın duvarına vuran reklam ışığı belli belirsiz renk değiştiriyordu. Ben onun yüzündeki en küçük hareketi yakalamaya çalışırken o sanki vereceği cevabın yalnızca benim hayatımı değil, kendi hayatını da değiştireceğini tartıyordu.
+Sibel hemen cevap vermedi. Başını pencereye doğru çevirdi. Gecenin o saatinde bile uzaklardan bir motor sesi geliyor; karşı apartmanın duvarına vuran reklam ışığı belli belirsiz renk değiştiriyordu. Ben onun yüzündeki en küçük hareketi yakalamaya çalışırken o sanki vereceği cevabı iyice tartiyor gibiydi.
 
-“Sana anlatacaklarımın başkalarına aktarılması, yalnızca benim için değil, tanımadığın pek çok kişi için ölümcül sonuçlar doğurabilir.”
+“Sana anlatacaklarımın başkalarına aktarılması, yalnızca senin ve benim için değil, tanımadığın pek çok kişi için ölümcül sonuçlar doğurabilir.”
 
 “Beni öldürmeyeceğinizi söylemiştin.”
 
-“Senden söz etmiyorum.”
+“Anlattiktan sonra, yapacaklarina bagli olarak, oldurebiliriz. Yalnizca seni de degil...”
 
-O anda ilk kez, Sibel’in korkabileceğini düşündüm. Yüzünde korku yoktu; ama korku belki de onun bedeninde bizimkinde olduğu gibi görünmüyordu. Gizli sisteme girdiğim için kendimle gurur duyduğum saatler aklıma geldi. Bir kapıyı açmış, ardında ne bulunduğunu düşünmeden içeri dalmıştım. Şimdi o kapının arkasında, varlığından habersiz olduğum insanların hayatları duruyordu.
+O anda ilk kez, Sibel’in de korktugunu hisettim. Yuzunden degil ama belki sesinden ya da konusma bicimindeki hafif degisiklikten. Gizli sisteme girdiğim için kendimle gurur duyduğum saatler aklıma geldi. Bir kapıyı açmış, ardında ne bulunduğunu düşünmeden içeri dalmıştım. Şimdi o kapının arkasında, varlığından habersiz olduğum insanların hayatları duruyordu.
 
-“Sırrını koruyacağım,” dedim. “Bana ne yaparsan yap, koruyacağım.”
+“Sırrını koruyacağım,” dedim. “Bana ne yaparsan yap, koruyacağım.” Bunu beni oldurmesinler diye soylemedim. Hem bilmedigim insanlarin ozel yazismalarina burnumu sokup hem de ogrendiklerimi basklarina soyleyecek kadar utanmaz biri degildim. Bunu soyleyerek duydugum utanci bir nebze azaltmak istemistim.
 
 “Bunu söyleyeceğini biliyordum.”
 
 “Çünkü beni iyi tanıyorsun.”
 
-“Çünkü sen, kendin hakkında kurduğun bütün kötü cümlelere rağmen, verdiği sözü kendi çıkarından üstün tutan birisin. Bizi ilgilendiren özelliklerinden biri de bu.”
+“Mutlaktin.com sitesi, 2006. 'Tek gecerli etik soz etigi, verdiği sözü kendi çıkarından üstün tutma iradesidir'. Bunu sen yazdin degil mi? Kendi web sitende.”
 
-“Bizi ilgilendiren?”
+"Dogru. Guzel sozmus, unutmustum. Beni dusundugumden daha fazla arastirmissiniz belli ki"
 
-“Yazdığın programlar yüzünden seçilmedin yalnızca. Yıllardır yazdığın şeyleri, aldığın kararları, kendine bile açıklamadığın bazı davranışlarını inceledik. Ayrıntıların toplamı bir insanı vermez; o ayrıntıları birbirine bağlayan düzeni görmek gerekir. Senin düzenini biliyorum.”
+“Yazdığın programlar yüzünden seçilmedin yalnızca. Yıllardır yazdığın şeyleri, aldığın kararları, kendine bile açıklamadığın bazı davranışlarını inceledik. Ayrıntıların toplamı bir insanı vermez; o ayrıntıları birbirine bağlayan düzeni görmek gerekir. Senin düzeninin ana hatlarini biliyoruz”
+
+Buna gercekten guldum. Cunku bence beni yanlislikla hayatinin bir duzeni, yonu olan bir insan sanmislardi!
 
 “Ben düzensizliğin beden bulmuş hâliyim.”
 
 “Gündelik hayatın düzensiz. Zihninin yönü değil.”
 
-Bu cümle, gecenin başından beri duyduklarım arasında beni en çok sarsan şey olabilirdi. Çünkü Sibel, kendimde yıllardır birbirine bağlayamadığım iki kişiyi tek cümleyle birleştirmişti: yaşamını sürükleyen sarhoşla, kod yazarken hiçbir kusuru bağışlamayan adamı. Beni tanıdığını söylemesine inanmak istemiyordum; inanırsam, ona duyduğum aşkın karşılıksızlığından daha ağır bir eşitsizliği de kabul etmem gerekecekti. Ben onun yüzünü, sesini, birkaç hareketini biliyordum. O ise bende neyin nereye aktığını gösteren görünmez çizgileri görüyordu.
+Bu cümle, gecenin başından beri duyduklarım arasında beni en çok sarsan şey olabilirdi. Çünkü Sibel, kendimde yıllardır birbirine bağlayamadığım iki kişiyi tek cümleyle birleştirmişti: yaşamı ruzgardaki yaprak misali ordan oraya savrulan sarhoşla, kod yazarken hiçbir kusuru bağışlamayan adamı.
 
-“Bütün bunların şişeyi havada yakalamanla ne ilgisi var?”
+Bir yandan da zihnim hala o dusmeyen sisedeydi. Bir siseye bir de ona bakip
+
+“Bütün bunların şişeyi havada yakalamanla ne ilgisi var?” diye sordum.
 
 “Sandığından daha fazla.”
 
@@ -590,73 +580,75 @@ Sibel öne doğru eğildi. Sokaktan gelen ışık gözlerinin yalnızca alt böl
 
 “Türünüz, yeryüzündeki bütün öteki insan türlerinin yok olduğunu sanıyor. Neandertallerin, Denisovalıların ve adını bile koyamadığınız başka insan topluluklarının geride yalnızca kemikler ve genler bıraktığına inanıyorsunuz. Bu inanç bütünüyle yanlış değil. Ama eksik.”
 
-Ne söyleyeceğini anladığımı sandım, sonra böyle bir şeyi anlayamayacağımı düşündüm. Ağzımdan yine de tek kelime çıktı:
+Sozlerinin nereye dogru gittigini anliyordum ama yine de buna imkan vermiyordum. Ağzımdan tek kelime çıkabildi:
 
 “Siz…”
 
 “Biz de insanız, Bülent. Ama sizinle aynı insan türünden değiliz.”
 
-Gülmem gerekiyordu belki. İtiraz etmeli, yeterince içtiğimi, onun da bana saçma bir oyun oynadığını söylemeliydim. Fakat Sibel karşımda oturuyordu ve birkaç dakika önce eğitimli bir sporcunun bile zorlanacağı hız ve isabetle hareket etmişti. Bir yıldan uzun süredir gecenin birkaç saatinde uyuyan biri gibi yaşamış, farklı uzmanlık alanları arasında benim alışık olmadığımdan daha hızlı bağ kurmuş, dünyaya yayılmış kendi dili olan bir sistemin içinde çalışmıştı. Söyledikleri hâlâ inanılmazdı; fakat aylardır biriktirdiğim ayrıntılara ilk kez tek bir açıklama getiriyordu.
+Gülmem gerekiyordu belki. İtiraz etmeli, yeterince içtiğimi, onun da bana saçma bir oyun oynadığını söylemeliydim. Fakat Sibel karşımda oturuyordu ve birkaç dakika önce eğitimli bir sporcunun bile zorlanacağı hız ve isabetle hareket etmişti. Bir yıldan uzun süre boyunca gecenin çok ilerleyen saatlerine kadar çalışabildine ve bunu günlerce sürdürebilmesine sahit olmustum. Farklı uzmanlık alanlarında uzmanlasacak zihinsel ceviklige ve enerjiyi sahip oldugunu ve ustelik dünya capinda kendi ozel dili olan bir sistemin uyesi oldugunu biliyordum. Söyledikleri hâlâ inanılmazdı; fakat aylardır biriktirdiğim ayrıntılara ilk kez bir açıklama getiriyordu.
+
+Zihnim bu cümleyi önce anlamış, sonra anlamamış gibi yaptı. İnsan türleri benim için müzelerde sergilenen kafataslarından, belgesellerde yüzlerine bilgisayar yardımıyla deri geçirilen uzak akrabalardan ibaretti. Hepsi geçmişte yaşamış, birbirine karışmış ya da yok olmuştu; geriye de gezegenin tartışmasız sahibi olarak biz kalmıştık. En azından bildiğim biyoloji böyle söylüyordu. Şimdi ise o biyoloji, karşımda siyahlar içinde oturan bir kadın tarafından hiçbir çaba gösterilmeden altüst ediliyordu. Sibel bir fosil, eksik bir kemik ya da genetik bir kalıntı değildi. Canlıydı, konuşuyordu ve biraz önce düşmekte olan bir şişeyi benim gözlerimin takip etmekte zorlandığı bir hızla yakalamıştı.
+
+Bir an insanlığın soy ağacını gözümde canlandırdım. Kendimizi ağacın tek canlı dalı sanırken başka bir dalın yüzyıllardır yapraklarını bile kıpırdatmadan hemen yanımızda uzandığını öğrenmiştim. Üstelik ben, o dalın olağanüstü güzel bir üyesine âşıktım. Sevdiğim kadının başka bir ülkeden, başka bir dinden, hatta bambaşka bir siyasal görüşten çıkabileceğini insan az çok hesaba katıyordu. Başka bir insan türünden çıkmasıysa hazırladığım olasılıklar listesinde yoktu.
+
+İnanıp inanmadığımı hâlâ bilmiyordum. Fakat zihnim itiraz edecek bir neden aramak yerine, duyduğum şeyi sınıflandırmaya çalışmaya başlamıştı. Yazılımcı zihnimin en saçma gerçek karşısındaki ilk tepkisi bile değişmiyordu: Önce değişkenin adını öğren.
 
 “Türünüzün adı ne?”
 
-“Sizin sınıflandırmanızla *Homo Systemis*.”
+“*Homo Systemis* ismini vermis atalarimiz”
 
 Adı içimden birkaç kez tekrarladım. *Homo Systemis.* Sözcük, ilk kez duyduğum hâlde yabancı gelmiyordu; sanki Sibel’i tanıdığımdan beri zihnimde sessizce kuruluyor, yalnızca sesini bulmayı bekliyordu.
 
 “Sistem insanı.”
 
-“Yaklaşık olarak.”
+Sözcüğü öylesine ciddi söylemişti ki ironiyi bir an gecikmeyle yakaladım. Bu, Sibel’in bana yönelttiği ilk alaycı sözdü. Hayat gerçekten tuhaftı: Daha on beş-yirmi dakika önce bu kadının beni öldürmeye gelmis olabilecegine inanıyordum; şimdi ise Latince çeviri yeteneğimle dalga geçiyordu. Bu küçücük sataşmanın beni iyiden iyiye rahatlamisti.
 
-“Ve siz bizden daha mı güçlüsünüz?”
+“Bizden daha cevik bir tursunuz sanirim?”
 
 “Bazı bakımlardan. Ortalama olarak daha hızlı ve dayanıklıyız. Tepkilerimiz daha kısa, bedenlerimiz yük altında daha uzun süre düzenini koruyabiliyor. Bazı hastalıklara karşı daha dirençliyiz.”
 
-“Uyumuyorsunuz.”
+Aklima gunler boyunca sabaha dek calismalari geldi.
 
-“Uyuyoruz. Çoğumuza iki ya da üç saat yetiyor. Ağır fiziksel yükten ve yaralanmadan sonra daha fazlasına ihtiyaç duyuyoruz.”
+“Ve uyumuyorsunuz hic, sanirim?”
 
-“Yaşlanıyor musunuz?”
+“Uyuyoruz. Ama coğumuza genelde iki ya da üç saat yetiyor. Ağır fiziksel yükten ve yaralanmadan sonra daha fazlasına ihtiyaç duyuyoruz tabi.”
 
-“Evet. Biraz daha uzun süre sağlıklı kalıyoruz; hepsi bu. Yaşlılarımızın saçları ağarıyor, bedenleri yavaşlıyor ve sonunda ölüyorlar.”
+“Yaşlanma durumunuz?” Hali hazirda ne kadar guzel olursa olsun, onun seksen kusur yasindayim demesinden korkuyordum.
 
-Aylar önce e-mail saatlerine bakıp bir kadına âşık olan insanın her ayrıntıdan metafizik sonuç çıkardığını söyleyerek kendimle dalga geçmiştim. Meğer metafizik sandığım şey biyolojiymiş. Gülmeye başladım. Korkudan mı, rahatlamadan mı, yoksa aklım sonunda yükünü taşıyamadığı için mi bilmiyorum. Sibel beni durdurmadı. Gülüşüm kesilince gözlerimden yaş geldiğini fark ettim ve elimin tersiyle sildim.
+“Evet. Sizden biraz daha uzun süre sağlıklı kalıyoruz; hepsi bu. Yaşlılarımızın saçları ağarıyor, bedenleri yavaşlıyor ve sonunda ölüyorlar. Insaniz sonucta”
 
-“Kusursuz olduğunuzu mu düşünüyorsunuz?”
+Aylar önce attigi emaillerin gonderim saatine bakip, asik insanin her ayrıntıdan dogaustu bir sonuç cikarmaya meyilli oldugunu soyleyerek kendimle dalga geçmiştim. Meğer dogaustu sandığım şey biyolojiymiş. Gülmeye başladım. Korkudan mı, rahatlamadan mı, yoksa aklım sonunda yükünü taşıyamadığı için mi bilmiyorum. Sibel beni durdurmadı. Gülüşüm kesilince gözlerimden yaş geldiğini fark ettim ve elimin tersiyle sildim.
 
-“Hayır. Kusursuzluk tamamlanmış olmak değildir. Hatasını bütüne zarar vermeden görebilen ve kendini düzeltebilen sistem kusursuzluğa yaklaşır. Biz yalnızca bu yaklaşmayı, sizin türünüzden daha bilinçli biçimde sürdürüyoruz.”
+“Peki, zihinsel bakımdan da bizden üstün müsünüz?” diye sordum, gülüşüm yatışırken.
 
-“Zihinsel olarak da üstün olduğunuzu söylüyorsun.”
+“Zihinsel ustunlugun tek bir olcutu yok. Siz bazı şeyleri bizden daha iyi yapıyorsunuz: bireysel yaratıcılıkta, sanatta... Cok daha bireyci bir tur oldugunuz için geliştirdiğiniz bazı anlatım biçimleri de daha iyi bizimkilerden. Bizim ise çalışma belleğimiz daha güçlü, dikkatimizi daha uzun süre koruyabiliyoruz. Tehlike altında duygularımız düşüncemizi sizin kadar dağıtmıyor; bu yüzden karmaşık yapıların parçaları arasındaki ilişkileri ve uzun vadeli sonuçları izlerken daha az hata yapıyoruz. Ama yanlış bilgiyle biz de yanlış karar veririz. Bizi sizden ayıran asıl şey, tek tek zihinlerimizin üstünlüğü değil, bilgiyi birlikte kullanma biçimimiz.”
 
-“Üstün sözcüğü tek bir ölçü varmış gibi konuşur. Siz bazı şeyleri bizden daha iyi yapıyorsunuz. Bireysel yaratıcılığınız, sanatınız, birbirinizden kopuk olduğunuz için geliştirmek zorunda kaldığınız bazı anlatım biçimleri… Bizim çalışma belleğimiz ve dikkat süremiz daha güçlü. Tehlike altında duygularımız düşüncemizi daha az dağıtıyor; bir yapının parçaları arasındaki ilişkileri ve uzun sonuç dizilerini izlerken daha az hata yapıyoruz. Ama yanlış bilgiyle biz de yanlış karar veririz. Asıl üstünlüğümüz, tek tek zihinlerimizden çok bilgiyi birlikte kullanma biçimimiz.”
-
-“Bireysel isteklerinizi bütünden ayrı mı görmüyorsunuz, yoksa onlara hiç sahip değil misiniz?”
+“Daha bireyci derken?”
 
 Sibel ilk kez cevabını dikkatle seçmek zorunda kalmış gibi sustu.
 
 “Ben varım,” dedi sonunda. “Kendi kararlarımı veriyorum, acı çekiyorum, istiyorum. Ama kendimi sizinki gibi kendi başına bir merkez olarak yaşamıyorum. Bedenindeki bir hücre, bütün bedenin dışında bağımsız bir geleceği varmış gibi davranırsa siz buna özgürlük demezsiniz. Biz de bireyi bütünden koparan arzuyu özgürlük saymıyoruz.”
 
-Bu sözleri söylerken kendisinden “ben” diye söz etmesi, söylediklerini çürütmüyordu belki ama içimde küçük bir umut aralığı açıyordu. Sibel ne kadar başka olursa olsun karşımda tek bir bedende oturuyor, tek bir sesle konuşuyor, kendi kararını verdiğini söylüyordu. Ona duyduğum aşkın bu açıklamadaki yerini aradım; bulduğum şeyin adı umut mu, inat mı, anlayamadım.
+Analmistim sanirin ne demek istedigini. Sibel bireyselliğini reddetmiyordu; yalnızca kendisini bütünden bağımsız bir varlık olarak görmüyordu. Kendi istekleri, acıları ve kararları vardı ama bunları bütünden ayrı düşünmüyordu. Ben ise bir insanın “ben” olabilmesi için gerektiğinde “biz”den ayrılabilmesi gerektiğine inanıyordum. Sibel’in dünyasındaysa ben ile biz arasında ayrım vardı ama kopuş yoktu. Bu düşünceyi kavrayabiliyordum; böyle yaşamanın nasıl bir şey olduğunu ise hayal edemiyordum.
 
-“İki tür arasında hiç ilişki olmadı mı?” diye sordum.
+Yine de söylediği sözcüklerden biri zihnime takılmıştı: *İstiyorum.* Kendi istekleri olan ve kendi kararlarını veren bu insanlar bizimle yüzyıllardır aynı dünyada yaşıyorlarsa, iki tür arasındaki temasın yalnızca uzaktan gözlemden ibaret kalmış olması mümkün müydü?
+
+“İki tür arasında hiç ilişki olmadı mı?” diye sordum. Sorar sormaz da bu sorunun insanlık tarihine duyduğum meraktan kaynaklanmandigini anlamaz diye umdum.
 
 “Oldu. Fakat yaklaşık iki bin yıldır başka insan türleriyle eşleşmiyoruz.”
 
-“Yapamıyor musunuz?”
+“Imkansiz mi?”
 
-“Yapmamayı seçiyoruz. Türümüzün sürekliliği için alınmış bir karar.”
+“Yapmamayı seçiyoruz. Türümüzün sürekliliği ve safligi için alınmış bir karar.”
 
-“Sen birini seçersen?”
+“Dyelim ki sen bir Homo Sapiens ile eslesmek istedin...” Utanmazca sansimi zorluyordum. Ayni turden olsak bile bu inanilmaz guzellikteki kusursuz kadinin benim gibi vasat gorunumlu ve darmadaginik hayati olan birini secmesi esyanin tabiatina aykiriydi, bunu biliyordum elbette ama yine de onunla romantik ve erotik bir konuda konusmak bana iyi hissettiriyordu.
 
-“Birini seçersem bir Systemis seçerim.”
+Bekledigim uzere yaniti eglencemi aninda oldurdu.
 
-Bunu beni düşünerek söylememişti; benim duymak istemediğim anlamı fark etmemiş gibi de görünmüyordu. Aramızda henüz bir ilişki yoktu ama olmayacak bir ilişkinin sınırı iki bin yıl öncesinden çizilmişti.
+“Yeterince acik degildim sanirim. Hic bir systemis hic bir sapiens ile iliskiye girmez!” Sesinde hafif bir kizginlik hisseder gibi oldum. Duygularini dondurmus gibi hic belli etmeyen bu kadini bile cildirtmayi basarmistim demek ki. Konuyu degistirmem gerekiyordu hemen. Merak ettigim o kadar cok soru vardi ki zihnimde onlarla ilgili, yeni bir soru bulmak hic zor olmadi.
 
-“O hâlde sen de onlar için yalnızca bir parça mısın?”
-
-“Yalnızca sözcüğü size ait. Bir kalbin bedenin bir parçası olması onu önemsiz yapmaz.”
-
-“Peki o site?”
+“Peki o web sitesi?”
 
 “Kara Kutu yalnızca bir site değil.”
 
@@ -668,27 +660,27 @@ Bunu beni düşünerek söylememişti; benim duymak istemediğim anlamı fark et
 
 “Bunu yapabilmen bile burada olmamın nedenlerinden biri.”
 
-Kara Kutu’nun tek bir site değil, birbirinden ayrılmış kapalı iletişim alanlarına verdikleri ortak ad olduğunu söyledi. Gördüğüm dil bir şifreleme yöntemi değil, yüzyıllar içinde geliştirdikleri gerçek bir dildi. Bunun ötesindeki sorularımın hiçbirini cevaplamadı. Kaç kişi olduklarını, nerelerde yaşadıklarını ve ağın nasıl çalıştığını bilmeyecektim.
+Kara Kutu’nun tek bir web sitesi değil, birbirinden ayrılmış kapalı iletişim alanlarına verdikleri ortak ad olduğunu söyledi. Gördüğüm dil bir şifreleme yöntemi değil, yüzyıllar içinde geliştirdikleri gerçek bir dildi. Bunun ötesindeki sorularımın hiçbirini cevaplamadı. Kaç kişi olduklarını, nerelerde yaşadıklarını ve ağın nasıl çalıştığını bilemeyecektim.
 
-“Henüz,” sözünü özellikle seçtiğini düşündüm.
+Anlattıklarını zihnimde bir düzene sokmaya çalışırken en basit soru giderek daha çok ağırlık kazandı. Sibel beni susturmak için gelmişti; en azından ben öyle sanmıştım. Hesabın erişimini kesebilir, beni tehdit edip bir daha yaklaşmamamı söyleyebilirdi. Bunun yerine yalnızca kendi hayatını değil, insanlık tarihine ilişkin bildiğim her şeyi altüst edecek bir sırrı açıklamıştı. Böylesine büyük bir sırrı bana açmasının nedeni, yalnızca beni Kara Kutu’dan uzak tutmak olamazdı.
 
-“Beni aranıza mı alacaksınız?”
+“Bunları bana neden anlattın, Sibel?”
 
-“Bu gece bunun için gelmedim.”
+“Amaçlarımızı paylaşan Sapiensler var. Onlara müttefik diyoruz. Bizimkine benzer düşüncelere sahip olmaları yetmez. İradelerinin sağlam, güvenilir ve öğrendiklerini kendi çıkarları için kullanmayacak insanlar olmaları gerekir.”
 
-“Neden geldin öyleyse?”
+“Bende bunların olduğunu mu düşünüyorsun?”
 
-“Çünkü artık iki tehlikeli yanlışın vardı. Birincisi, bizi sıradan bir örgüt sanıyordun. İkincisi, beni tek başıma hareket eden biri sanıyordun. Bu yanlışlarla ne yapacağını öngöremezdim.”
+“Sen açıkça böyle birisin.”
 
-“Şimdi öngörebiliyor musun?”
+Sözleri içimde neredeyse çocukça bir sevinç uyandırdı. Sibel bana yalnızca iyi bir mühendis olduğumu söylemiyordu; irademin sağlam olduguna, güvenilir biri olduğuma inanıyordu. Üstelik bunu, kusurlarımı, sarhoşluklarımı, sınır tanımazlığımı ve bilgisayarına yaptığım şeyi bilen Sibel söylüyordu. Bütün bunlara rağmen beni kendi dünyasına girmeye değer bulmuştu. Mutluluğumu saklamaya çalışmadım; yüzüme yayılan gülümsemeyi görmesine izin verdim.
 
-“Hayır.”
+“Öyleyse ben de müttefik olabilir miyim?”
 
-Onun ağzından çıkan bu tek kelime, o geceki bütün olağanüstü açıklamalardan daha insaniydi. Sibel beni bütünüyle çözemediğini ilk kez kabul etmişti. Buna sevinmekten utandım ama sevindim. Onun dünyasında hâlâ hesaplanamayan küçücük bir yerim vardı.
+“Müttefik olmak kolay bir süreç değil. Önce aday gösterilirsin. Adaylığın kabul edilirse daha fazla bilgilendirilir ve değerlendirmeye alınırsın. Müttefikliğe kabul edildiğinde türümüz hakkında daha da fazlasını öğrenirsin. Ama müttefikler bile yalnızca birkaç Systemis’i tanır ve görevleriyle ilgisi olmayan şeyleri öğrenemezler.”
 
-“Ama bir karar vermiş olmalısın,” dedim. “Yoksa burada olmazdın.”
+“Beni aday mı göstereceksin?”
 
-“Sana gerçeğin ilk bölümünü anlatmaya karar verdim. Daha fazlasını öğrenip öğrenmeyeceğine ben tek başıma karar veremem. Sen de veremezsin.”
+“Gösterdim bile. Şimdilik resmen aday adayısın. Fakat adaylığına ben tek başıma karar veremem.”
 
 “Kim verecek?”
 
@@ -700,43 +692,37 @@ Bu sözcüğü öyle doğal söyledi ki bir kuruldan, liderden ya da örgüt yö
 
 Sibel ayağa kalktı. Pencerenin önünde durup sokağa baktı. Sonra, ilk görüşmemizde odasının penceresi önünde yaptığı gibi, ellerini arkasında birleştirdi.
 
-“Bu, gerçeğin ikinci bölümü,” dedi. “Bu gece onu anlatmayacağım.”
+“Adaylığın kabul edilirse öğreneceğin ilk şeylerden biri bu olacak”
 
-“Yine e-mail mi bekleyeceğim?”
+“Şimdi ne olacak?”
 
-“Önce anlattıklarımı düşünmeni bekleyeceksin. Kara Kutu’ya bir daha girmeyeceksin. Topladığın bütün verileri ve yazdığın bileşenin kopyalarını yarın yok edeceksin.”
+“Önce anlattıklarımı düşünmeni istiyorum. Kara Kutu’ya bir daha girmeyeceksin. Topladığın bütün verileri ve yazdığın bileşenin kopyalarını yarın yok edeceksin.”
 
 “Yok etmezsem?”
 
 Bana döndü. Yüzünde ne öfke ne de yalvarma vardı.
 
-“Bu kez evine gelen kişi ben olmayabilirim.”
+“Bu kez evine gelen kişi ben olmam”
 
-Bunun bir tehdit mi yoksa beni başkalarından korumaya çalışan bir uyarı mı olduğunu soramadım. Belki ikisiydi. Sibel kapıya doğru yürüdü. Onu durdurmak, yüzlerce soru daha sormak, koluna dokunup gerçekten benimle aynı maddeden yapılmış olup olmadığını anlamak istiyordum. Hiçbirini yapmadım.
+“Bu bir tehdit mi?”
 
-Kapının önünde arkasından seslendim:
+“Evet.”
 
-“Sibel.”
+“Beni öldürürler mi?”
 
-Durdu ama dönmedi.
+“Evet.”
 
-“O gün kafede zaten iki insan gibi konuştuğumuzu söylemiştin.”
+Cevabı verirken sesinde en küçük bir sertlik yoktu. Bu, tehdidi hafifletmiyor; tersine, onun kişisel öfkeden değil, çoktan belirlenmiş bir zorunluluktan doğduğunu gösteriyordu.
 
-“Yalan değildi.”
+Sibel kapıya doğru yürüdü. Onu durdurmak, yüzlerce soru daha sormak, koluna dokunup gerçekten benimle aynı maddeden yapılmış olup olmadığını anlamak istiyordum. Hiçbirini yapmadım. Dis kapiyi acti.
 
-“Ama aynı türden değilmişiz.”
+“Karar verildiğinde sana ulaşacağım,” dedi.
 
-“Aynı türden olmak, birbirini anlayabilmenin koşulu değildir.”
+Sonra çıktı.
 
-Kapının kilidini açtı. Cebinden çıkardığı, benim anahtarımın neredeyse aynısı olan ince anahtarı geri koyduğunu bu kez görebildim. Çıkmadan önce yüzünü bana çevirdi.
+Kapı kapandıktan sonra uzun süre yerimden kıpırdamadım. Sonra pencereye geçip aşağı baktım. Sibel sokağın başında bekleyen koyu renkli otomobile biniyordu.
 
-“Bazen engelidir.”
-
-Kapı kapandıktan sonra uzun süre yerimden kıpırdamadım. Bir ara gidip dürbünden baktığımda merdiven sahanlığından alt kata indiğini gördüm. Pencereye geçtiğimde sokağın başında bekleyen koyu renkli otomobile biniyordu. Sonra tekli koltuğa, az önce oturduğu yere geçtim. Kumaş hâlâ sıcaktı. Elimi koltuğun üzerine koyup o sıcaklığın gerçekten var olduğundan emin olmaya çalıştım.
-
-Yıllardır kendimi başarısız olduğum bir türe ait hissediyordum. Şimdi, o türün dünyadaki tek insan türü olmadığını öğrenmiştim. Bu gerçeğin beni küçültmesi gerekirdi. Oysa ilk anda hissettiğim şey korkudan ya da aşağılanmadan çok, çocukluğumdan beri içimde taşıdığım akıl dışı bir umudun doğrulanmasıydı: İnsan, bildiğimiz insanla sınırlı değildi.
-
-Fakat sevdiğim kadın benim türümden değildi.
+Salona döndüğümde oturdugu tekli koltuğa baktım. Oraya oturmak, onun yerine geçip bedeninden kalan izleri silmek gibi geldi. Koltuğun hemen yanına, halının üzerine oturdum ve omzumu kolçağa yasladım. Birkaç dakika önce onun bedeniyle benimki arasında yalnızca birkaç adım vardı. Şimdi ona yaklaşmanın tek yolu, az önce bulunduğu yere yaklaşmaktı. Uzun süre kalkmadım.
 
 -------------------------------∞-------------------------------
 
@@ -746,7 +732,7 @@ Sibel yaklaşık yedi hafta boyunca benden hiçbir şey istemedi. Bu sürede *Ho
 
 Ağustosun son cuma günü Sibel’den kısa bir mesaj geldi. Ertesi sabah saat yedide, Kozyatağı’nda tarif ettiği sokakta bulunacaktım. Telefon, saat, bilgisayar ve kayıt yapabilecek hiçbir şey götürmeyecektim. Bir gece kalmayacak, aynı gün dönecektik. Nereye gideceğimizi sormadım. Mesajın son cümlesi, sorularımın çoğundan daha ağırdı:
 
-“Günün sonunda adaylığının sürmesini isteyip istemediğine karar vereceksin.”
+“Günün sonunda adaylığa kabul edilip edilmediğini öğreneceksin.”
 
 Sokağa vardığımda Sibel arka koltukta oturuyordu. Direksiyondaki adam ellili yaşlarının başında görünüyordu; ince yapılıydı, saçlarının yanları kırlaşmıştı. Arabaya biner binmez elini uzattı.
 
@@ -856,7 +842,7 @@ Eve dönerken bacaklarım titriyordu. Sibel bunu fark etti ama yardım teklif et
 
 “Tamamını,” dedi Sibel. “Kırk üç sayfa. Buradan çıkaramaz, üzerine not alamazsın. Bitirdiğinde sorularını konuşacağız; giderken kitap bizde kalacak.”
 
-Kitap tek bir yazarın sesiyle yazılmamıştı. Bazı bölümler soğuk ve bilimsel, bazıları neredeyse şiirseldi; dipnotlarda yüzyıllar içinde değiştirilen eski önermelerden söz ediliyordu. Bunun Systemis düşüncesinin tamamı değil, bir adayın bilmesi gereken temel ilkelerin kısaltılmış biçimi olduğunu daha ilk sayfalardan anladım.
+Kitap tek bir yazarın sesiyle yazılmamıştı. Bazı bölümler soğuk ve bilimsel, bazıları neredeyse şiirseldi; dipnotlarda yüzyıllar içinde değiştirilen eski önermelerden söz ediliyordu. Bunun Systemis düşüncesinin tamamı değil, adaylığa alınmadan önce bilmem gereken temel ilkelerin kısaltılmış biçimi olduğunu daha ilk sayfalardan anladım.
 
 Metnin başlangıç noktası birey değil, canlılıktı. Bir varlığın değeri bütüne boyun eğmesinden gelmiyor; bütün, her parçanın sürekliliğini kendi sürekliliğinin koşulu sayabildiği ölçüde gerçek bir bütün oluyordu. Beden benzetmesi sık sık kullanılıyor ama hücrenin beden için kolayca feda edilebileceği sonucu özellikle reddediliyordu. Bütün, parçalarını tüketerek büyüyen bir canavar değil; onların olanaklarını birbirine ekleyen canlı bir düzen olmalıydı.
 
@@ -894,7 +880,7 @@ Burak önündeki küçük deftere ilk kez uzun bir not aldı. Sibel ise “Bir S
 
 “Binlerce yıllık hedefinizi bugün tanıştığınız adama göre değiştireceğinizi sanacak kadar aptal değilim. Bana daha çok güvenebileceğiniz alanı söylüyorum. Sapiensleri sizden iyi tanıyorum.”
 
-“Bu yanıtını beklemiyordum,” dedi. Sesinde övgü yoktu ama ilk kez beni yalnızca aday olarak değil, kullanılabilir bir akıl olarak tarttığını hissettim.
+“Bu yanıtını beklemiyordum,” dedi. Sesinde övgü yoktu ama ilk kez beni yalnızca bir aday adayı olarak değil, kullanılabilir bir akıl olarak tarttığını hissettim.
 
 “Kirlenmiş tür meselesine gelince,” dedim. “Bunda bütünüyle haksız olduğunuzu düşünmüyorum. Mülkiyet, iktidar ve din yalnız düzenimizi değil, neyi arzuladığımızı da kirletti. Ama kirlenmiş olmak kirden ibaret olmak değildir. Sapiensler berbat toplumsal düzenlerin altında bile bilim, sanat, dayanışma ve kendini başkası için tehlikeye atabilme kapasitesi gösterdi. Türümün içinde son derece temiz, hatta şaşırtıcı derecede fedakâr insanlar var.”
 
@@ -974,11 +960,11 @@ Burak ile Sibel birbirlerine baktılar. Burak’ın yüzü önce gevşedi; ardı
 
 “Ve geçtim.”
 
-“Müttefikliğe kabul edilmedin,” dedi Sibel. “Bu yalnızca, istersen adaylığının sürmesine onay verdiğimiz anlamına geliyor.”
+“Müttefikliğe değil,” dedi Sibel. “Ama adaylığa kabul edildin.”
 
 Akşam olmuştu. Göl, ağaçların arasında koyu bir lekeye dönüşmüş; evin kötü tablosundaki manzara dışarıdaki gerçekten daha aydınlık kalmıştı. Sibel kitabı önümden aldı ve çantasına koydu. Burak gün boyunca tuttuğu notların sayfalarını tek tek saydı.
 
-“Adaylığının sürmesini istiyor musun?” diye sordu.
+“Adaylık süreci sen istemeden başlamaz,” dedi. “Aday olmayı kabul ediyor musun?”
 
 Bu kez Sibel’e bakmadan cevap vermeye çalıştım. Başaramadım; gözlerim kısa bir an ona gitti. Sonra ikisine birden baktım.
 
@@ -994,7 +980,7 @@ Bu kez Sibel’e bakmadan cevap vermeye çalıştım. Başaramadım; gözlerim k
 
 Burak defterini kapattı. Dönüş yolunda üçümüz de çok az konuştuk. İstanbul’un ışıkları görünmeye başladığında sabah arabada konuştuğumuz Suriye haberlerini düşündüm. Burak’ın konuyu akşam yeniden açmasının yalnızca düşüncelerimi sınamak için olup olmadığını merak ettim. Onlara sordum mu, hatırlamıyorum. Hatırladığım şey, Sibel’in arabadan inerken ilk kez elimi kendi isteğiyle sıkmasıydı.
 
-O gün bana Systemis dünyasının kapıları açılmamıştı. Yalnızca kapının önünde biraz daha kalmama izin verilmişti.
+O gün Systemis dünyasının kapıları bana açılmamıştı. Ama artık kapının önündeki bir yabancı değil, içeri alınıp alınmayacağı sınanan bir adaydım.
 
 -------------------------------∞-------------------------------
 
