@@ -1352,7 +1352,7 @@ Sakin sakin, sözcüklerin altını biraz vurgulayarak konuşmaya başladı.
 
 Yüzümdeki ifadeyi görünce başını iki yana salladı.
 
-“Acındırmaya çalışmıyorum kendimi. Yalnızca insan denen şeye uymadığımı söylüyorum.”
+“Dramatize etmiyorum. Yalnızca insan denen şeye uymadığımı söylüyorum.”
 
 Nota isimlerini bilmediği yaşlarda annesi, Doğa öbür odadayken piyanoda birkaç sese basarmış. Doğa yalnızca sesleri bulmaz, hangi sırayla ve ne güçle çalındıklarını da söyleyip piyanoda aynısını tekrar edermiş. Buzdolabının uğultusunda, elektrik süpürgesinde, sokaktan gelen gürültüde bile başkalarının işitmediği katmanları ayırabiliyormuş.
 
